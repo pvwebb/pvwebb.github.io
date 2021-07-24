@@ -1,5 +1,7 @@
- <head> <title>(PVW) Confessions of Faith</title> <meta content="IE=9" http-equiv="X-UA-Compatible"></meta> <link href="css/page_style.css" rel="stylesheet" type="text/css"></link> </head><body lang="EN-US"><div class="page_style">Confessions of Faith
+ title: (PVW) Confessions of Faith
 --------------------
+
+# Confessions of Faith
 
 [What Southern Baptists believe](http://www.sbc.net/aboutus/basicbeliefs.asp)
  (see the bottom of the link above.)
@@ -16,7 +18,7 @@
 
 [My Prayer](prayer.html)
 
- </div> - [Back to home page.](noframesindex.html)
+- [Back to home page.](noframesindex.html)
 - [How to receive a new life in Christ.](gospel.html)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)

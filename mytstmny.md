@@ -9,7 +9,7 @@ In grade school, I wanted to be a geologist. By high school, I wanted to be an a
 
 Even after becoming a Christian at an early age and having a good theological education, I still struggle to grow and mature in Christ. Although I believed that God had some purpose in spending the time and money for a theological education, I had not fully grasped the meaning of the verses, "Be joyful always; pray continually; give thanks in all circumstances, for this is God's will for you in Christ Jesus." (1 Thessalonians 5:16-18, *The New International Version*) I probably still do not understand it fully, but what helps me get through the frustrations of life is knowing that [everything is happening according to God's purpose](http://www.biblegateway.com/passage/?search=romans%208:28-30). When I look back at life even a few years, I see a less dedicated and less mature Christian. Hopefully, as life continues I will continue to be able to say the same thing throughout life.
 
- </div>- [Back to home page.](noframesindex.html)
+ </div>- [Back to home page.](index.html)
 - [Back to Confessions of Faith](confess.html)
 - [How to receive a new life in Christ.](gospel.html)
 

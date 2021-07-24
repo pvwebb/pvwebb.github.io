@@ -9,7 +9,7 @@ In the push to reach larger numbers of people with the gospel, the temptation is
 
 As imperfect sinful human beings, God's message to us is painful (Hebrews 4:12-13) and contrary to our nature (Romans 8:5-8). Naturally people seek to dull its cutting edge by glazing over the simple straightforward meaning of the Scriptures to avoid the pain. It is only when we desire to do God's will more than anything else that we understand God's Word (John 7:17).
 
-  </div>- [Back to home page.](noframesindex.html)
+  </div>- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

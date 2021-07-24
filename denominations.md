@@ -23,7 +23,7 @@ The Reformation did more than start denominations emphasizing personal faith and
 
 [A list of the benefits the Christian receives from suffering. ](benefits_suffering.html)
 
-<div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script>  </div>- [Back to home page.](noframesindex.html)
+<div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script>  </div>- [Back to home page.](index.html)
 - [Back to "Answers to Some Philosophical Questions".](philosop.html)
 - [How to receive a new life in Christ.](gospel.html)
 

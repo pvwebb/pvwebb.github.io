@@ -19,7 +19,7 @@ His brothers then came and threw themselves down before him. "We are your slaves
 
  We can look at the story of Joseph and see God's work back then in the patriarchs. However, God revealed Himself in the Bible not just to tell us past history, but to show us how to live (2 Timothy 3:16-17). We should learn to have the same confidence in God's purpose that Joseph had. How does a Hebrew shepherd boy become an advisor to the Egyptian Pharaoh? Only God could work out such as unlikely chain of events.</div>Not only does this story tell us to have confidence when life seems unfair, but also when we willingly sin as was the perspective of Joseph's brothers. When we try logically to understand God's sovereignty and our freedom to choose, the two seem to conflict. However, the stark reality is that they are interdependent. We can choose because God chose to give us that ability. If it were not for God fulfilling His purpose even when we fail, our past decisions might have trapped us so that we could no longer decide to do God's will. If it were not for God's sovereignty, other people's decisions might keep us from doing His will. Because God is accomplishing his will in the events of the past, present, and future, there is nothing to prevent us from doing his will now. God has provided the means (Romans 8:28-39).
 
- </div>- [Back to home page.](noframesindex.html)
+ </div>- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

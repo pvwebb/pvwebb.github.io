@@ -8,7 +8,7 @@
 
 God's will includes everything we are and do externally, but more important it comprises everything that we are internally. God's will is foreign to the interests of the secular world. It also conflicts with our unrestrained natural desires (Romans 8:7-8). It requires a change in our thinking, desires, attitudes, and opinions. It requires a change in who we are. The Bible gives us the cognitive information we need. When we receive Christ's sacrifice and give our lives to Him, we receive God's Spirit (Romans 8:9-11). His Spirit counters our former attitudes and desires (Galatians 5:16-26).
 
-<div class="copy">©2000 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](noframesindex.html)
+<div class="copy">©2000 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

@@ -8,7 +8,7 @@
 
 <div class="p"><table> <tr><td>[ Borger High School](http://www.borgerisd.net/bhs/); [Borger](http://www.ci.borger.tx.us/), Texas</td><td>Class of 1970,</td></tr> <tr><td>[ Hardin-Simmons University](http://www.hsutx.edu/)</td><td>1970-1975</td></tr> <tr><td>[ Southwestern Baptist Theological Seminary](http://www.swbts.edu/)</td><td>1975-1979</td></tr> <tr><td>[ Texas A &amp; M University](http://www.tamu.edu/)</td><td>1979-1983</td></tr> </table>
 
-</div>  </div>- [Back to home page.](noframesindex.html)
+</div>  </div>- [Back to home page.](index.html)
 - [Back to Confessions of Faith](confess.html)
 - [How to receive a new life in Christ.](gospel.html)
 

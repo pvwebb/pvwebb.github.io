@@ -7,7 +7,7 @@
 
 The wisdom, strength, and riches in Jeremiah 9:23 ([see also](pride.html)) also relate to these three parts of the inner person. Thus, the ideal is that we justly conduct our lives with our God given abilities, that we allow the knowledge of His revealed truth correct our lives, and that we use the abundance of God's resources to show kindness to those who are in need.
 
-  </div>- [Back to home page.](noframesindex.html)
+  </div>- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

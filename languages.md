@@ -21,7 +21,7 @@ Heart and the Inner Person (TBD)
 
 Husband and Man, Wife and Woman (TBD)
 
- <div class="copy">©2007 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](noframesindex.html)
+ <div class="copy">©2007 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](index.html)
 - [Back to Confessions of Faith](confess.html)
 - [How to receive a new life in Christ.](gospel.html)
 

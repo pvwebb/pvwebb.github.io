@@ -18,7 +18,7 @@
  [Under what conditions may Christians divorce and remarry?](http://www.christiananswers.net/q-eden/edn-f004.html)
  [What does the Bible say about same sex marriages?](http://www.christiananswers.net/q-eden/edn-f018.html)
 
-<div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script> </div>- [Back to home page.](noframesindex.html)
+<div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script> </div>- [Back to home page.](index.html)
 - [Back to "Where I stand".](stance.html)
 - [How to receive a new life in Christ.](gospel.html)
 

@@ -23,7 +23,7 @@ Unlike computer memory, our single moments of memory are not located in a single
 
 Newer article on this subject "[How does the brain produce volition (will), cognition (intellect), and emotions (feelings)?](mindinbrain.html)"
 
-  </div>- [Back to home page.](noframesindex.html)
+  </div>- [Back to home page.](index.html)
 - [Back to "Answers to Some Philosophical Questions".](philosop.html)
 - [How to receive a new life in Christ.](gospel.html)
 

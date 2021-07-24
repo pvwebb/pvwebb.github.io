@@ -11,7 +11,7 @@ The hand represents our actions and work. The forehead represents our mind. What
 
 The Antichrist will follow [the temptations Satan placed before Christ](temptation.html). The Antichrist will be preoccupied with deceiving the people with miraculous signs (Revelation 13:13-15). He will emphasize taking care of peoples' physical needs. He will use governmental authority to force what he considers to be right upon the people. Controlling buying and selling is one example. Even today in many countries considered primarily Christian, Christians struggle with governments attempting to legislate immorality. This is the tendency of an unregenerate world, but why are so many Christians caught up in this same tendency?
 
-  </div>- [Back to home page.](noframesindex.html)
+  </div>- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

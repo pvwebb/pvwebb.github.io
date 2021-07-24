@@ -26,7 +26,7 @@ The temptation to jump from the temple was the temptation for Jesus' ministry to
 [Footnote on other temptation passages](temptation2.html)
 
 <div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script><div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div>  </div>- [Newer version](temptation3.html)
-- [Back to home page.](noframesindex.html)
+- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

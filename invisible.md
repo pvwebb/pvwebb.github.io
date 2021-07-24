@@ -33,7 +33,7 @@ The sign God gave Moses so he would know God sent him was that he would bring Is
 
  Note: I took this approach to answer the philosophical question, "Why is God invisible?" This is not how I would approach a systematic theology. <div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script><div class="copy">©2007 Perry Vernon Webb. You may quote this page in part or the whole as long as you
  1) do not alter the wording and
- 2) reference this Internet page as the source of the quote. </div> </div>- [Back to home page.](noframesindex.html)
+ 2) reference this Internet page as the source of the quote. </div> </div>- [Back to home page.](index.html)
 - [Back to "Answers to Some Philosophical Questions".](philosop.html)
 - [How to receive a new life in Christ.](gospel.html)
 

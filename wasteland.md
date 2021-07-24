@@ -11,7 +11,7 @@ Following God's will doesn't mean sitting passively waiting. It means submitting
 
 <div class="copy">©2002 Perry Vernon Webb. You may quote this page in part or the whole as long as you
  1) do not alter the wording and
- 2) reference this Internet page as the source of the quote.</div> Related page: [*Galatians 4:22-23: Abraham's example of faith*](abraham.html)  </div>- [Back to home page.](noframesindex.html)
+ 2) reference this Internet page as the source of the quote.</div> Related page: [*Galatians 4:22-23: Abraham's example of faith*](abraham.html)  </div>- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

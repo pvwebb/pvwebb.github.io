@@ -30,7 +30,7 @@ Trust in the LORD with all your heart
 Do not be wise in your own eyes;
  fear the LORD and shun evil....
 
- Proverbs 3:1-7, NIV</div><div class="copy">©2000 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](noframesindex.html)
+ Proverbs 3:1-7, NIV</div><div class="copy">©2000 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

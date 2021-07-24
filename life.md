@@ -9,7 +9,7 @@ The word translated *life* in these verses is the word *psyche*. It means an ind
 
 How do people attempt to find, save, keep, or preserve their lives? There are many different ways, but they are all characterized by selfishness. People try to look at life as if it were something that could be hoarded as often done with money. However, time continues to run no matter what we do. Life is much more like love than money. Love multiplies by giving it away. God showed us the greatest love possible by giving His life for us (John 15:13). We now love because God first loved us (1 John 4:19). Because Jesus sacrificed His life, we have eternal life (John 3:16; 1 John 4:9-10). You are spending your life on something. You cannot stop time from running out. Will you spend your life on things that will not matter when it is over, or will you spend it on being a part of God's eternal plan?
 
-  </div>- [Back to home page.](noframesindex.html)
+  </div>- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

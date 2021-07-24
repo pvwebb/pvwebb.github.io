@@ -100,7 +100,7 @@
 
 - [Back to Top](#top)
 - [Back to Confessions of Faith](confess.html)
-- [Back to Home Page.](noframesindex.html)
+- [Back to Home Page.](index.html)
 - [How to receive a new life in Christ.](gospel.html)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)

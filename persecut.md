@@ -9,7 +9,7 @@
 
 [Cassie Griffin and Shawn Brown (two of seven killed at Wedgwood Baptist Church September 15, 1999)](Weldgwood1.html)
 
-   </div>- [Back to home page.](noframesindex.html)
+   </div>- [Back to home page.](index.html)
 - [Back to Confessions of Faith](confess.html)
 - [How to receive a new life in Christ.](gospel.html)
 

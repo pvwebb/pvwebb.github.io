@@ -9,7 +9,7 @@ Our society resolves how we treat the handicapped by laws to encourage businesse
 
 We need to look at an individual's advantages rather than his/her disadvantages. What can that person do better than other people can? This thought values a person highly. It promotes the desire to be accommodating because of that value. Of course, to do this is discriminating. It is correctly discriminating to the highest degree. It is rightly choosing a person because of who he or she is. Some of the people who have made very important contributions to our society have had severe disadvantages while some that have had the most ability have been the most destructive. We cannot afford to neglect anyone. Everyone is valuable in God's sight.
 
-<div class="copy">©1999 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](noframesindex.html)
+<div class="copy">©1999 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

@@ -11,7 +11,7 @@ It is good to have prayer in public schools, but not the kind of prayers that ar
 
 It is difficult to have any religious related activities in public schools and insure that the government is not supporting religion. Many public schools have taken the easy way out to exclude anything that hints of religion in public schools. However, the statement of a black preacher best describes the success of this solution. He said, "We try to go to the schools to help the kids before they get into trouble, and you tell us we can't. They get into trouble. You put them in jail. Then, you tell us we can come in and help them."
 
-<div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script> </div>- [Back to home page.](noframesindex.html)
+<div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script> </div>- [Back to home page.](index.html)
 - [Back to "Where I stand".](stance.html)
 - [How to receive a new life in Christ.](gospel.html)
 

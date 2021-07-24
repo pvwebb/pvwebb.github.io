@@ -3,7 +3,7 @@
 
 [Testimonies of Freedom from Homosexuality](http://www.messiah.edu/hpages/facstaff/chase/h/testimon/index.htm)
 
-   </div>- [Back to home page.](noframesindex.html)
+   </div>- [Back to home page.](index.html)
 - [Back to Confessions of Faith](confess.html)
 - [How to receive a new life in Christ.](gospel.html)
 

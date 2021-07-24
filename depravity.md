@@ -169,7 +169,7 @@ div.Section1
 
  </div>*[<span style="font-size:18.0pt">Back to Confessions of Faith</span>](confess.html)*
 
-*[<span style="font-size:13.5pt">Back to home page.</span>](noframesindex.html)*
+*[<span style="font-size:13.5pt">Back to home page.</span>](index.html)*
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

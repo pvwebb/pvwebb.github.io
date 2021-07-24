@@ -30,7 +30,7 @@ and to be considerate of other people.
 
 I ask this in Jesus name. Amen.
 
-  </div>- [Back to home page.](noframesindex.html)
+  </div>- [Back to home page.](index.html)
 - [Back to Confessions of Faith](confess.html)
 - [How to receive a new life in Christ.](gospel.html)
 

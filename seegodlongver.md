@@ -23,7 +23,7 @@ In Romans 9:15, Paul quotes from this context, "I will have mercy on whom I will
 
 </div>It's difficult to have confidence in God when we don't know what today or tomorrow will bring. What strengthens our faith is when we can remember God's response when we relied on Him in the pass.
 
-<div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](noframesindex.html)
+<div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

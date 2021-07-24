@@ -12,7 +12,7 @@ Not only should we welcome God's interfering with our own plans, but we should a
 
 On the other hand, if God controls all circumstances, why can't we flip a coin or draw straws to determine what God wants? Ephesians 5:15 starts this passage that we should live wisely and not unwisely. Ephesians 5:17 parallels unwise with foolish (not knowing, ignorant) and wise with understanding (having insight into) God's will. God desires more than for us to follow Him blindly. He wants us to develop a character that understands His will, a character that desires what God desires with the compassion and concerns that God has. He is shaping our character to be like Christ's character (Romans 8:29).
 
-<div class="copy">©1999 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](noframesindex.html)
+<div class="copy">©1999 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

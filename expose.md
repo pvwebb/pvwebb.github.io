@@ -11,7 +11,7 @@ This passage uses "darkness" symbolically to represent the secret, lying, and ma
 
 As a teenager, my Sunday School teacher had a good example of how innocent situations could cause false rumors. His identical twin brother was a pastor in another town. While visiting his brother, he took his wife to a movie. The people didn't know him or his wife and thought that he was his brother taking a strange woman to a movie. The pastor easily explained the situation to those that confronted him, but those who started rumors in private started something not easily corrected. Rumor and gossip distort the truth. Even if they start out correct, they quickly become distorted when passed along.
 
-<div class="copy">©1999 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](noframesindex.html)
+<div class="copy">©1999 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

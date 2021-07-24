@@ -19,7 +19,7 @@
 
 [The Bridge to Life (The Navigators)](http://www.navigators.org/us/resources/illustrations/items/The%20Bridge%20to%20Life)
 
- </div>- [Back to home page.](noframesindex.html)
+ </div>- [Back to home page.](index.html)
 - [How to receive a new life in Christ.](gospel.html)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)

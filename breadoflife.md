@@ -13,7 +13,7 @@ I tell you the truth, he who believes has everlasting life. I am the bread of li
 
 This is the bread that came down from heaven. Your forefathers ate manna and died, but he who feeds on this bread will live forever. (John 6:58, NIV)
 
- This has obvious connections to the Last Supper during Passover just before Christ was crucified. Paul referred to Christ as the Passover Lamb (1 Corinthians 5:7). Jesus was born in Bethlehem (the House of Bread). A major part of Jesus being the Bread of Life is that He is the atoning sacrifice for our sins that restores our relationship with God (John 6:53-58; Romans 5:6-8; 8:3; 2 Corinthians 5:21; Galatians 3:13; Hebrews 9:28; 1 Peter 2:24; 3:18).</div>  </div>- [Back to home page.](noframesindex.html)
+ This has obvious connections to the Last Supper during Passover just before Christ was crucified. Paul referred to Christ as the Passover Lamb (1 Corinthians 5:7). Jesus was born in Bethlehem (the House of Bread). A major part of Jesus being the Bread of Life is that He is the atoning sacrifice for our sins that restores our relationship with God (John 6:53-58; Romans 5:6-8; 8:3; 2 Corinthians 5:21; Galatians 3:13; Hebrews 9:28; 1 Peter 2:24; 3:18).</div>  </div>- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

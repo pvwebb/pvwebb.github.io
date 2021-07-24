@@ -20,7 +20,7 @@ a.lbxSmallSearchTooltip:hover span {position: absolute;margin:15px 0px 0px
 </style></head><body bgcolor="#333399" link="#ffffff" text="#c0c0c0" vlink="#ffff00">Perry Webb's personal Web site
 ==============================
 
-<div class="gradientbuttons">- <div class="button">[![home](images/home.gif) &amp;nbsp Home](noframesindex.html)</div>
+<div class="gradientbuttons">- <div class="button">[![home](images/home.gif) &amp;nbsp Home](index.html)</div>
 - <div class="button">[![Confessions of Faith](images/Bible.gif)
    Confessions of Faith](confess.html)</div>
 - <div class="button">[![Where I stand](images/luther.jpg)

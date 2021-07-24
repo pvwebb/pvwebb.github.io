@@ -23,7 +23,7 @@ To the person who is struggling with guilt, whether from an abortion or some oth
 To the person who is either facing an unwanted pregnancy or struggling with the guilt of an abortion, the following link to [Crisis Pregnancy Centers Online](http://www.crisispregnancy.com/) lists local locations that offer help.
 
  </div>- [Newer edition of this page.](abortion2.html)
-- [Back to home page.](noframesindex.html)
+- [Back to home page.](index.html)
 - [Back to "Where I stand".](stance.html)
 - [How to receive a new life in Christ.](gospel.html)
 

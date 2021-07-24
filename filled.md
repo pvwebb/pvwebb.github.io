@@ -21,7 +21,7 @@ In contrast to doubt, the faith we need to do the asking involves agreeing with 
 
 The faith we need for the Holy Spirit to fill us implies a willingness to do what God wants us to do (John 7:16-19). It involves a willingness to let God correct our lives (Hebrews 12:1-13). It includes a willingness to put our own interests aside and to live as Christ lived (Philippians 2:1-11; 1 John 2:6).
 
-<div class="copy">©1999 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](noframesindex.html)
+<div class="copy">©1999 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

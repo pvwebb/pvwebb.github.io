@@ -9,7 +9,7 @@ When God gave Abraham the specific promise of a son (Genesis 15:1-6), a promise 
 
 How often do we feel the urge to help God out in accomplishing His will in our lives? Undesirably, this temptation leads us to use all the human means available to us, even means acceptable by the human standards of our day, but not to God. Living by faith is living by what God has told us is right in the scriptures and trusting God to work out the circumstances of His will.
 
-<div class="copy">©1999 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](noframesindex.html)
+<div class="copy">©1999 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

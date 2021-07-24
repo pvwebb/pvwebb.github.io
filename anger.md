@@ -5,7 +5,7 @@
 
 James 1:19, NIV</div>Standing for the absolute truth that resides with God should be foremost to resist this temptation. At the same time, anger, character assassination, and a sharp tongue do not determine truth. This is how people who believe that truth is relative try to change the truth. Anger does not make what a person says any more true. In fact, it doesn't even show that a person has confidence in what one says, but actually a lack of confidence (see [You Say I'm A Liar?](http://www.boundless.org/regulars/regctl.cfm?aid=69) by J. Budziszewski). The ability to listen and to disagree with love and concern shows confidence. Truth does not depend on us or on our ability to understand it. Truth depends on God.
 
-  </div>- [Back to home page.](noframesindex.html)
+  </div>- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

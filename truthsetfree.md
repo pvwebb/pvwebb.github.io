@@ -11,7 +11,7 @@
 
 <div class="p">Our relationship with Christ sets us free in more than one way. Christ's sacrificial death sets us free from the penalty of sin. This sets us free from fear<div class="footnote">(1 John 4:17-18)</div> and condemnation<div class="footnote">(Romans 8:1-3)</div>. But if it stopped there without setting us free from the sin's control over how we live<div class="footnote">(Romans 8:4-17)</div>, we would not find life fulfilling. </div><div class="p">Jesus' example<div class="footnote">(John 13:15; 1 Corinthians 11:1; Ephesians 5:1-2; 1 Peter 2:21; 1 John 2:6)</div> from his life here on earth is an example for how we should live. Through belonging to Him, our Master (Lord), and through His Spirit indwelling our lives, He gives us the desire to live the life<div class="footnote">(Galatians 5:16-17)</div> He showed us. Thus, His Spirit within us battles our desires that would choose sin, releasing us to choose His will. When we commitment ourselves to Him, we can entrust our fulfillment<div class="footnote">(Ephesians 2:10; Philippians 2:13)</div> to Him.</div><div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script><div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you
  1) do not alter the wording and
- 2) reference this Internet page as the source of the quote. </div>  </div>- [Back to home page.](noframesindex.html)
+ 2) reference this Internet page as the source of the quote. </div>  </div>- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

@@ -41,7 +41,7 @@ We cannot stand back and be silent while the homosexual agenda pushes to educate
  [What are the consequences of sexual immorality?](http://www.christiananswers.net/q-eden/edn-f007.html)
 
  </div>- [Newer edition of this page.](homosexual2.html)
-- [Back to home page.](noframesindex.html)
+- [Back to home page.](index.html)
 - [Back to "Where I stand".](stance.html)
 - [How to receive a new life in Christ.](gospel.html)
 

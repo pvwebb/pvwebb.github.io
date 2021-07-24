@@ -15,7 +15,7 @@ Some of my best friends to prevent fights were black Christians. In junior high 
 
 It is easy to learn to be unselfish to family and friends. If we don't learn there, then we won't learn. However, Jesus taught a love that went beyond this. Jesus told us to love our enemies (Matthew 5:43-48). He told us to lend money to people who had no way of paying us back (Luke 6:32-36).
 
-  </div>- [Back to home page.](noframesindex.html)
+  </div>- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

@@ -9,7 +9,7 @@ Believing in an all-powerful, all-seeing, and all-knowing God, who has completel
 
 Free thought and choice only exist because [God values and preserves it](temptation.html). Even though people allow their desires to enslave them, God has still made the provision to set us free (John 15:15; Galatians 5:1, 13-14). An irony in life is that we do not find freedom to control our destiny by allowing our personal desires to control us. [We find freedom in submitting our lives to God](life.html). He not only provided the means of freedom through His Son, but His Son also gave us an example of how to live our lives (1 Peter 2:21).
 
-<div class="copy">©2000 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote. </div>  </div>- [Back to home page.](noframesindex.html)
+<div class="copy">©2000 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote. </div>  </div>- [Back to home page.](index.html)
 - [Back to "Answers to Some Philosophical Questions".](philosop.html)
 - [How to receive a new life in Christ.](gospel.html)
 

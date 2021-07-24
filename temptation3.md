@@ -18,7 +18,7 @@ Jumping tempted Jesus to dazzle people with the miraculous (maybe even to give t
 <div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script><div class="copy">©2003 Perry Vernon Webb. You may quote this page in part or the whole as long as you
  1) do not alter the wording and
  2) reference this Internet page as the source of the quote.</div>  </div>- [Older version](temptation.html)
-- [Back to home page.](noframesindex.html)
+- [Back to home page.](index.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
 

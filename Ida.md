@@ -70,7 +70,7 @@ http://www.dejanews.com/ Now offering spam-free web-based news reading
 [Revival and Persecution: Economic Unrest Spawns Muslim Rampage in Indonesia](http://www.leaderu.com/common/indonesia.html),
  by Cynthia White, The Dallas/Fort Worth Heritage
 
- </div>- [Back to home page.](noframesindex.html)
+ </div>- [Back to home page.](index.html)
 - [Back to Confessions of Faith](confess.html)
 - [How to receive a new life in Christ.](gospel.html)
 

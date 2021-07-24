@@ -24,7 +24,7 @@ From the sermon, "[Remaining Awake Through a Great Revolution](http://www.stanfo
 Other subjects to be added later:
  <font size="2">"It is one small step from suggesting that witness for Christ engenders hate crimes to saying witness for Christ is a hate crime." (Paige Patterson) </font>
 
-  </div>- [Back to home page.](noframesindex.html)
+  </div>- [Back to home page.](index.html)
 - [How to receive a new life in Christ.](gospel.html)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)

@@ -1,0 +1,36 @@
+ <head> <title>(PVW) Discussion on Abortion</title> <meta content="IE=9" http-equiv="X-UA-Compatible"></meta> <link href="css/page_style.css" rel="stylesheet" type="text/css"></link> </head><body><div class="page_style"> Discussion on Abortion
+----------------------
+
+Abortion is an issue that is not clearly addressed in the Scriptures because, only with more advanced medicine than in Bible times, has it become possible. People who both justify and condemn abortion have used one Scripture that refers to accidentally causing a woman to miscarry ([Exodus 21:22-25](http://www.biblegateway.com/passage/?search=Exodus%2021:22-25)). With this issue we are left with two possibilities either to take away an individual's freedom to choose a particular way they treat their body or to legalize the ability of someone to take away another person's life without their choice. Given this decision, how would you expect me to decide?
+
+An interesting aspect of this issue is that the younger women, who were most affected by legalizing abortion, have a larger percentage supporting the right of the unborn child to live than their older counterpart. Some of the women who are the most politically active in supporting the right of the unborn child to live who had an abortion thinking it was the right thing to do. However, despite of their moral opinion, the experience left them with deep feelings of guilt. It is common for young girls to dream of having a family with children.
+
+While politically we may call the desired an unborn child and the undesired a fetus, the subjective experience is not so clearly different. Even the Latin term, fetus is not as distinctly different in meaning than the word baby as we make it today. I personally know several people who were born after only being carried for five months and they still survived. Yet, people still abort fetuses after this age when they could actually survive on their own apart from the mother with the help of modern medicine. In the seventies it was popular for neurologist to claim that a baby had no experience of hearing or seeing before being born. Now that people have actually investigated the influence of experience before birth, it is clear that children are already starting to learn language in the womb from their mothers' voices. Delivery room nurses have a wealth of practices based on the fact that the newborn already has a considerable background of experience at birth.
+
+<div class="p">Psychologists Dr. Anne Speckhard in her book (Psycho-Social Stress Following Abortion, Kansas City, Missouri: Sheed and Ward, 1987) gives the results of a 1985 University of Minnesota study. The following lists the percentages of women affected by the listed Post Abortion Syndrome symptoms five to ten years after an abortion.   
+ <table class="p"> <tr><td>96%</td><td>felt their abortion had taken a human life </td></tr> <tr><td>81%</td><td>were preoccupied with the death of the unborn child </td></tr> <tr><td>81%</td><td>experienced frequent crying </td></tr> <tr><td>77%</td><td>experienced an inability to communicate </td></tr> <tr><td>73%</td><td>had unwanted flashbacks of the abortion </td></tr> <tr><td>69%</td><td>experienced feelings of "craziness" after the abortion </td></tr> <tr><td>69%</td><td>were sexually inhibited </td></tr> <tr><td>65%</td><td>had thoughts of suicide </td></tr> <tr><td>61%</td><td>increased their use of alcohol </td></tr> <tr><td>54%</td><td>had nightmares related to the abortion </td></tr> <tr><td>35%</td><td>had perceived visitations with their child </td></tr> <tr><td>23%</td><td>had uncontrollable hallucinations related to the abortion</td></tr> </table>
+
+ The researchers also observed these Post Abortion Syndrome symptoms in others who participate in the abortion, such as fathers, siblings and other family members of the child, and abortion clinic staff. </div>Even though my wife has never had the need to face the decision of an abortion, I have noticed a subjective difference in her attitude toward both human and animal life after the birth of our children. Talking about a person dying prematurely, whether from a car accident or murder, affects her emotionally. She can only think of the sacrifice that mother made to bring that life into the world. The only difference between my wife and me as far as having children is that she bore them. She said that carrying a moving and kicking child within herself had a lasting emotional affect.
+
+What motivates the woman who once favored abortion, but after its consequences is now politically active at supporting the rights of the unborn child? Some may see it as guilt. It's the same motivation as what motivates Mothers Against Drunk Driving. Their child has died, but they still have the chance to stop the future deaths of other children.
+
+What often motivates a woman who has had an abortion to work so devoutly for the rights of the unborn is that, after everything was said and done, she feels that she was victimized. She was given no more alternative than the person going to a sales person who wants to sell the product and doesn't want no for an answer. There was no mention about how she would feel after an abortion or any counseling about the life inside of her. If a minor goes to the doctor with an injury, the doctor quizzes the child about how the injury occurred in an attempt to see if child abuse occurred. This is not the case with an abortion. In fact, a minor can have an abortion without the knowledge of her parents. This can allow the perpetrator of child abuse to conceal his crime.
+
+I'm not a person who protests at abortion clinics. There is not justification for violence and especially killing while protesting for the right to life. A protest with an impact would be to tell an abortion clinic that if, you let us protest in front of your clinic, we will stand as a human shield between you and anyone who tried to use a weapon on people in your clinic. My personality is not the kind that likes to be obnoxious, but I've seen anti-drug advertisements showing the misery of an infant born to a drug-addicted mother. Some of the right-to-life protesters have used similar tactics. To say the tactic is OK when you agree with its message, but should be illegal when you don't is discriminatory.
+
+To the person who is struggling with guilt, whether from an abortion or some other reason, I have good news. [Jesus Christ came to earth and died so that you could be forgiven and have a new life in Him. ](gospel.html)Many unborn children did not die in vain. Many women who did not know this new life in Christ and who previously felt that an abortion was a legitimate alternative, after the guilt of the experience have now come to Christ.
+
+To the person who is either facing an unwanted pregnancy or struggling with the guilt of an abortion, the following link to [Crisis Pregnancy Centers Online](http://www.crisispregnancy.com/) lists local locations that offer help.
+
+ </div>- [Newer edition of this page.](abortion2.html)
+- [Back to home page.](noframesindex.html)
+- [Back to "Where I stand".](stance.html)
+- [How to receive a new life in Christ.](gospel.html)
+ 
+![](http://counter.digits.com/wc/-d/4/pvwebb)
+
+[![digits](images/wc-03.gif)](http://www.digits.com/)
+
+Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
+
+ 

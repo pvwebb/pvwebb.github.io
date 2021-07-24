@@ -1,0 +1,18 @@
+ <head> <title>(PVW) 1 Corinthians 13:13: faith, hope, and love</title> <meta content="IE=9" http-equiv="X-UA-Compatible"></meta> <link href="css/page_style.css" rel="stylesheet" type="text/css"></link> </head><body><div class="page_style"> 1 Corinthians 13:13: faith, hope, and love
+------------------------------------------
+
+<div class="p">And now these three remain: faith, hope and love. But the greatest of these is love. (1 Corinthians 13:13, NIV)
+
+</div><div class="p">While faith, hope, and love all involve the entire inner person, each tends predominately to involve one particular part of the inner person. While we base faith on the truth of God's word, it involves more than mental assumption. Guilt, justification (correcting or making right), and sanctification (purification) are all within the realm of responsibility, will (volition), and actions. Thus, for faith in Christ to take away the penalty of our sins<div class="footnote">(Romans 3:28; Galatians 2:15-16; 3:11, 23-25)</div>, it must be a faith that permeates our decisions and results in action<div class="footnote">(James 2:14-26)</div>. When we translate the verb form of *faith* as *believe*, the reader often misunderstands its meaning. The reader might better understand the translation with words like *trust*, *confide in*, *depend upon*, or *rely on*. External actions do not make us right with God, nor does believing facts about God. What applied to our lives the atonement of Christ's sacrificial death to make us right with God was our initial internal trust and dependence upon Christ that produces the right kind of living.</div>Hope is similar to faith. The Christian also bases hope on the truth of God's word. People today tend to assign both believe and hope to the realm of uncertainty. We might better understand *hope* by translating it as *expect* or *anticipate*. Think of how small children react when a loving father comes home from work to meet them. This is how we should be expectantly waiting for Christ to come back. If we are not this anxious for Christ's return, it shows that we treasure the world more than Christ.
+
+<div class="p">Genuine love also results in action. However, it should do so because it is our motive. Christian love begins with the emotion resulting<div class="footnote">(1 John 4:19)</div> from Christ's sacrificial life and death<div class="footnote">(John 3:16; 1 John 4:10)</div> for us, who are undeserving sinners<div class="footnote">(Romans 5:6-8)</div>. Curiosity, ambition, indignation, as well as pride, hate<div class="footnote">(1 John 2:9-11; 3:15; 4:20)</div>, greed, anger<div class="footnote">(Matthew 5:21-24; Romans 12:19)</div>, and fear<div class="footnote">(1 John 4:18)</div> can motivate people. Maybe sometimes other emotions are justified, but love should be what is the primary motive for our actions. We should return God's love because of the love He has shown us<div class="footnote">(1 John 4:19)</div>. We should also show more concern for others than ourselves just as Christ did<div class="footnote">(Philippians 2:1-11)</div>.</div><div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script>  </div>- [Back to home page.](noframesindex.html)
+- [Back to "Scriptural Impacts".](impacts.html)
+- [How to receive a new life in Christ.](gospel.html)
+ 
+![](http://counter.digits.com/wc/-d/4/pvwebb)
+
+[![digits](images/wc-03.gif)](http://www.digits.com/)
+
+Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
+
+ 

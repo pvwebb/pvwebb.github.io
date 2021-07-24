@@ -67,17 +67,12 @@ http://www.dejanews.com/ Now offering spam-free web-based news reading
 
 </div>### Here is a link to an article that gives the historic setting of this testimony:
 
-[Revival and Persecution: Economic Unrest Spawns Muslim Rampage in Indonesia](http://www.leaderu.com/common/indonesia.html),   
+[Revival and Persecution: Economic Unrest Spawns Muslim Rampage in Indonesia](http://www.leaderu.com/common/indonesia.html),
  by Cynthia White, The Dallas/Fort Worth Heritage
 
  </div>- [Back to home page.](noframesindex.html)
 - [Back to Confessions of Faith](confess.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

@@ -17,16 +17,11 @@ The consequences of a blind application of Darwin's theory compel us to question
 
 The aid which we feel impelled to give to the helpless is mainly an incidental result of the instinct of sympathy, which was originally acquired as part of the social instincts, but subsequently rendered, in the manner previously indicated, more tender and more widely diffused. Nor could we check our sympathy, even at the urging of hard reason, without deterioration in the noblest part of our nature. The surgeon may harden himself whilst performing an operation, for he knows that he is acting for the good of his patient; but if we were intentionally to neglect the weak and helpless, it could only be for a contingent benefit, with an overwhelming present evil. We must therefore bear the undoubtedly bad effects of the weak surviving and propagating their kind; but there appears to be at least one check in steady action, namely that the weaker and inferior members of society do not marry so freely as the sound; and this check might be indefinitely increased by the weak in body or mind refraining from marriage, though this is more to be hoped for than expected.
 
- The Nazis adopted the last two quotes of Darwin to justify genocide of races they considered inferior. All three quotes are logical conclusions to the biological model of evolution. If one accepts this model as unquestioned fact, then why would one reject Darwin's logical conclusions? You may reject these conclusions based on moral principles, but how many generations will it take for an unquestioned scientific model to override conflicting morality? If Darwin's conclusions about how we should treat the weak and handicapped as well as how we should treat other cultures and races are false, then shouldn't we recognize this as where the biological model of evolution fails to match up with reality? And, these are matters that concern the beginning biology student, not just the cutting edge biologist.</div><div class="copy">©2008 Perry Vernon Webb. You may quote this page in part or the whole as long as you   
- 1) do not alter the wording and   
+ The Nazis adopted the last two quotes of Darwin to justify genocide of races they considered inferior. All three quotes are logical conclusions to the biological model of evolution. If one accepts this model as unquestioned fact, then why would one reject Darwin's logical conclusions? You may reject these conclusions based on moral principles, but how many generations will it take for an unquestioned scientific model to override conflicting morality? If Darwin's conclusions about how we should treat the weak and handicapped as well as how we should treat other cultures and races are false, then shouldn't we recognize this as where the biological model of evolution fails to match up with reality? And, these are matters that concern the beginning biology student, not just the cutting edge biologist.</div><div class="copy">©2008 Perry Vernon Webb. You may quote this page in part or the whole as long as you
+ 1) do not alter the wording and
  2) reference this Internet page as the source of the quote. </div> </div>- [Back to home page.](noframesindex.html)
 - [Back to "Answers to Some Philosophical Questions".](philosop.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

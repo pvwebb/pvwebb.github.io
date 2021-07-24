@@ -23,23 +23,18 @@ God is no less that totally sovereign, no less than all-knowing, all-powerful, a
 
 The five points in Calvinism that form the acrostic, <span style="font-size:14.0pt;color:red">TULIP</span>, describe salvation from God's perspective. We need to balance this with the responsibilities God expects from us. The list below links to separate discussions for each point:
 
-<span style="color:red">T</span>otal depravity (TBD)  
- <span style="color:red">U</span>nconditional election (TBD)  
- <span style="color:red">L</span>imited atonement (TBD)  
- <span style="color:red">I</span>rresistible grace (TBD)  
+<span style="color:red">T</span>otal depravity (TBD)
+ <span style="color:red">U</span>nconditional election (TBD)
+ <span style="color:red">L</span>imited atonement (TBD)
+ <span style="color:red">I</span>rresistible grace (TBD)
  <span style="color:red">P</span>erseverance of the saints (TBD)
 
- <div class="copy">©2004 Perry Vernon Webb.   
- You may quote this page in part or the whole as long as you:   
- 1) do not alter the wording and   
+ <div class="copy">©2004 Perry Vernon Webb.
+ You may quote this page in part or the whole as long as you:
+ 1) do not alter the wording and
  2) reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](noframesindex.html)
 - [Back to Confessions of Faith](confess.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

@@ -9,16 +9,11 @@ This argument doesn't appeal to the mindset of people today. It appeals too much
 
 This question does more than challenge the atheist and agnostic. It challenges us to live up to our beliefs not only for our own satisfaction, but also to glorify God. If an atheist became your best friend, knew the details of your personal life, and lived with your family, would he/she see a fulfilled life in Christ? It's not a matter of circumstances being good in your life. Anyone can be happy when everything goes his/her way. When adversity comes, will you let it steal your joy? Or, will you trust God, who is in control, and recognize everything cooperating to shape us into His image (Romans 8:28-30)?
 
-<div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you  
- 1) do not alter the wording and   
+<div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you
+ 1) do not alter the wording and
  2) reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](noframesindex.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

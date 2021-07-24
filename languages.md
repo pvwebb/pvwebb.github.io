@@ -9,7 +9,7 @@ Reading the books of the Bible in the languages that they were originally writte
 
 By far, the most important tool for interpreting the scriptures is to know the Bible as a whole. There is a tendency to squeeze more meaning out of grammar and vocabulary than is reasonable. We should remember that the authors used a common language of their day in a natural way of communicating.
 
-### The following are links to articles designed to help those who don't understand the languages of the original texts to gain some insight about these particular topics. 
+### The following are links to articles designed to help those who don't understand the languages of the original texts to gain some insight about these particular topics.
 
 [World](world.html) (updated 9/28/2007)
 
@@ -24,11 +24,6 @@ Husband and Man, Wife and Woman (TBD)
  <div class="copy">©2007 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](noframesindex.html)
 - [Back to Confessions of Faith](confess.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

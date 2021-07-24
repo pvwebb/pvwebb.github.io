@@ -1,7 +1,7 @@
  <head> <title>(PVW) Homosexuality</title> <meta content="IE=9" http-equiv="X-UA-Compatible"></meta> <link href="css/page_style.css" rel="stylesheet" type="text/css"></link> </head><body><div class="page_style"> Homosexuality
 -------------
 
- Ephesians 5:1-20  
+ Ephesians 5:1-20
 More than ever before Christians need to take a firm stand for the truth related to homosexuality. Some Christians haven't done this because they only know that the Bible calls homosexual acts a sin. However, this in itself tells us quite a bit. Sin is a willful act and not an inherited genetic characteristic. We need to view homosexuality the same way we view adultery, fornication, bestiality, etc. All have devastating effects on the people who do them, but God can save them from their sin if they are willing (John 3:16-17; 8:31-32; Romans 5:6-8).
 
 Many Christian psychologists know much about homosexuality, but haven't spoken out in the past because it is very unpopular. The main reason for not having been outspoken is that our society has concentrated on stopping sexual abuse in children without being specific to the homosexuals. However, the trend in countries that have adapted the aggressive political thrust of homosexuals is undoing this by continually lowering the age for statutory rape. It is more than an attempt to prevent discrimination in employment. It is an effort to educate children to abandon the moral principles of their parents related to sexuality and make them vulnerable to homosexuality or any other lifestyle that a corrupt mind can think up.
@@ -28,27 +28,22 @@ We cannot stand back and be silent while the homosexual agenda pushes to educate
 
 #### *Focus on the Family* links:
 
- [Sharing the Truth in Love -- How One Man Overcame Homosexuality](http://web.archive.org/web/20010417134813/http://www.family.org/cforum/research/papers/A0002272.html)  
- [A Letter From Dr. Dobson -- The Christian Response to the Homosexual Agenda](http://web.archive.org/web/20010416015012/http://www.family.org/docstudy/newsletters/a0001935.html)  
+ [Sharing the Truth in Love -- How One Man Overcame Homosexuality](http://web.archive.org/web/20010417134813/http://www.family.org/cforum/research/papers/A0002272.html)
+ [A Letter From Dr. Dobson -- The Christian Response to the Homosexual Agenda](http://web.archive.org/web/20010416015012/http://www.family.org/docstudy/newsletters/a0001935.html)
  [A Letter From Dr. Dobson -- Families Under Fire](http://web.archive.org/web/20021016171852/http://www.family.org/docstudy/newsletters/a0002203.html)
 
 #### In the [Family &amp; Marriage Issues Question Index](http://www.christiananswers.net/menu-af1.html):
 
-[What should be the attitude of the church toward homosexuals and homosexuality?  
- ](http://www.christiananswers.net/q-eden/edn-f019.html)[What does the Bible say about same sex marriages?](http://www.christiananswers.net/q-eden/edn-f018.html)  
- [Can a gay person go to heaven?](http://www.christiananswers.net/q-dml/dml-y023.html)  
- [Why should I save sex for marriage?](http://www.christiananswers.net/q-sum/sum-f001.html)  
+[What should be the attitude of the church toward homosexuals and homosexuality?
+ ](http://www.christiananswers.net/q-eden/edn-f019.html)[What does the Bible say about same sex marriages?](http://www.christiananswers.net/q-eden/edn-f018.html)
+ [Can a gay person go to heaven?](http://www.christiananswers.net/q-dml/dml-y023.html)
+ [Why should I save sex for marriage?](http://www.christiananswers.net/q-sum/sum-f001.html)
  [What are the consequences of sexual immorality?](http://www.christiananswers.net/q-eden/edn-f007.html)
 
  </div>- [Newer edition of this page.](homosexual2.html)
 - [Back to home page.](noframesindex.html)
 - [Back to "Where I stand".](stance.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

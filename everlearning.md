@@ -7,16 +7,11 @@
 
 Paul's answer is at the end of the chapter (2 Timothy 3:14-17). The Bible is God's revelation to us. While human knowledge is limited (1 Corinthians 13:12), we can trust God who knows absolutely.
 
-<div class="copy">©2003 Perry Vernon Webb. You may quote this page in part or the whole as long as you   
- 1) do not alter the wording and   
+<div class="copy">©2003 Perry Vernon Webb. You may quote this page in part or the whole as long as you
+ 1) do not alter the wording and
  2) reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](noframesindex.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

@@ -15,17 +15,12 @@ Jumping tempted Jesus to dazzle people with the miraculous (maybe even to give t
 
 <div class="p">Satan's temptation to worship him was the temptation to bring people into submission by governmental might rather than leading them to let God rule through faith<div class="footnote">(Luke 17:20-21,John 18:36-38)</div>. It sees doing the right thing as more important than having the right thoughts and motives. But, laws forcing correct action devoid of good motives leads to hypocrisy<div class="footnote">(Matthew 15:7; Matthew 23:23-28)</div>. Interpreting laws with the wrong thoughts and motives leads to circumventing the good intentions of the laws often with disastrous results<div class="footnote">(John 7:16-19; 2 Peter 3:15-16)</div>.</div>Satan tempts us to reduce life to the physical, technical, and scientific and ignore relationships with people and with God, bypassing the spiritual aspect of life. Satan tempts us to dazzle with appearance, even to the point of shallow hypocrisy or deceit, rather than to struggle with the overwhelming depth of God's absolute truth. Satan tempts us to force people to be good against their will rather than to build goodness through character and integrity based on faith in God.
 
-<div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script><div class="copy">©2003 Perry Vernon Webb. You may quote this page in part or the whole as long as you   
- 1) do not alter the wording and   
+<div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script><div class="copy">©2003 Perry Vernon Webb. You may quote this page in part or the whole as long as you
+ 1) do not alter the wording and
  2) reference this Internet page as the source of the quote.</div>  </div>- [Older version](temptation.html)
 - [Back to home page.](noframesindex.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

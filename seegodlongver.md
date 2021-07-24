@@ -7,8 +7,8 @@ And the Lord said, &#147;I will cause all my goodness to pass in front of you, a
 
 Then the Lord said, &#147;There is a place near me where you may stand on a rock. 22 When my glory passes by, I will put you in a cleft in the rock and cover you with my hand until I have passed by. 23 Then I will remove my hand and you will see my back; but my face must not be seen.&#148;
 
- Exodus 33:18-23, NIV   
- Context: Exodus 33:12-23</div> [Shorter version](seegod.html).  
+ Exodus 33:18-23, NIV
+ Context: Exodus 33:12-23</div> [Shorter version](seegod.html).
  ![](images/moses.gif)Why did Moses now ask to see God? God spoke to Moses in the burning bush. God used Moses as His spokesman to bring the plagues upon Egypt. Moses say God part the Red Sea and enclose it upon the Egyptian army. Why did Moses need assurance God was still leading the Hebrews?
 
 God wrote the commandments on stone tablets and gave them to Moses to give to the people. But, on the mountain God threatened to destroy the Hebrews because they made and worshiped a golden calf. When Moses went down and saw the people worshiping the golden calf, in his anger he threw down the stone tablets and broke them. Now, Moses was back on the mountain. But, he had serious doubt whether God still wanted to lead the Hebrews.
@@ -26,11 +26,6 @@ In Romans 9:15, Paul quotes from this context, "I will have mercy on whom I will
 <div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](noframesindex.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

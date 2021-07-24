@@ -5,8 +5,8 @@
 
 Jesus answered, "It is written: 'Man does not live on bread alone, but on every word that comes from the mouth of God.'"
 
-<div class="p">Then the devil took him to the holy city and had him stand on the highest point of the temple. "If you are the Son of God," he said, "throw yourself down. For it is written: "'He will command his angels concerning you,  
- and they will lift you up in their hands,   
+<div class="p">Then the devil took him to the holy city and had him stand on the highest point of the temple. "If you are the Son of God," he said, "throw yourself down. For it is written: "'He will command his angels concerning you,
+ and they will lift you up in their hands,
  so that you will not strike your foot against a stone.'"
 
 </div>Jesus answered him, "It is also written: 'Do not put the Lord your God to the test.'"
@@ -29,11 +29,6 @@ The temptation to jump from the temple was the temptation for Jesus' ministry to
 - [Back to home page.](noframesindex.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

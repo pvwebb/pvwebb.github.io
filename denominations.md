@@ -17,8 +17,8 @@ The Reformation did more than start denominations emphasizing personal faith and
 
 <div class="p">Not only does the New Testament omit clearly defining any external form of worship or church government; it also does not present specific external actions that a person must do for God to save them (Matthew 19:16-30). God desires right external action be the result of being internally right with Him <div class="footnote">(1 Samuel 16:7; Galatians 2:16)</div> and being properly motivated by His indwelling Spirit. Christians can look at other denominations and see many things wrong. However, if they are honest, they must recognize the shortcomings within their own denomination. Any denomination that has existed for more than a generation and has enjoyed the freedom to worship without severe persecution has members in name only, to whom the church is only a convenience for performing marriages and funerals. They may be a little more active if they view church as a social club. If a church tries to oust these members <div class="footnote">(Matthew 13:24-30)</div>, it can only do so by pushing external conformity.</div><div class="p">Our internal unity through God's Spirit motivates Christians to seek harmony with one another <div class="footnote">(Ephesians 4:1-16; John 17:20-23)</div>. True unity in worship is a congregation with unanimity in Spirit and purpose; not an externally forced unity, but one through internal conviction based on God's revelation in the Bible. Real unity does not force external unity among churches, but seeks to cooperate with other churches as much as possible. Sometimes division for the sake of internal harmony is better than internal disharmony and fighting. If we recognize that the lost are even within members of our own denomination, we can be more cooperative about reaching them. Sometimes unsaved members within one's own denomination may have become so callused to the external form of the denomination that it takes a Christian from another denomination to reach them. Isn't it better to lose members of our own denomination if they find Christ in the process? Differences among denominations can help reach different people.</div>Given the nature of humanity, a better question is: "If Christianity were a single denomination, would that really accomplish God's intended purpose of reaching people from the inside out?" For Christians that really belong to Christ, God's Spirit already unites us. People should identify us as Christians, not by an institution, but by our love for one another (John 13:35).
 
-<div class="copy">©2000 Perry Vernon Webb. You may quote this page in part or the whole as long as you 1) do not alter the wording and 2) reference this Internet page as the source of the quote.</div>Related links:  
- ["If the Reformations Over, Can We Dance,"](http://www.boundless.org/2000/regulars/office_hours/a0000231.html) by J. Budziszewski, [Boundless Webzine](http://www.boundless.org/)  
+<div class="copy">©2000 Perry Vernon Webb. You may quote this page in part or the whole as long as you 1) do not alter the wording and 2) reference this Internet page as the source of the quote.</div>Related links:
+ ["If the Reformations Over, Can We Dance,"](http://www.boundless.org/2000/regulars/office_hours/a0000231.html) by J. Budziszewski, [Boundless Webzine](http://www.boundless.org/)
  [Joint Declaration On The Doctrine Of Justification -- The Lutheran World Federation And The Catholic Church](http://www.elca.org/ea/jddj/jddj.html)
 
 [A list of the benefits the Christian receives from suffering. ](benefits_suffering.html)
@@ -26,11 +26,6 @@ The Reformation did more than start denominations emphasizing personal faith and
 <div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script>  </div>- [Back to home page.](noframesindex.html)
 - [Back to "Answers to Some Philosophical Questions".](philosop.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

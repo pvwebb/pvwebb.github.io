@@ -9,8 +9,8 @@ Aside from Communism calling religion the opiate of the people, are the socialis
 
 </div><div class="p">David prayed to God before the assembly: I know, my God, that You test the heart and that You are pleased with uprightness. I have willingly given all these things with an upright heart, and now I have seen Your people who are present here giving joyfully and willingly to You. (HCSB, 1 Chronicles 29:17)
 
-</div><div class="p">In the Sermon on the Mount, Jesus addressed not only making the choice, but having the right motive ([Matthew 6:1-4](http://www.biblegateway.com/passage/?search=Matthew+6:1-4)). He said giving to look good in front of others isn't true goodness. Paul made the most definitive statement for the motive in giving in 1 Corinthians 13: And if I donate all my goods to feed the poor,  
- and if I give my body to be burned,  
+</div><div class="p">In the Sermon on the Mount, Jesus addressed not only making the choice, but having the right motive ([Matthew 6:1-4](http://www.biblegateway.com/passage/?search=Matthew+6:1-4)). He said giving to look good in front of others isn't true goodness. Paul made the most definitive statement for the motive in giving in 1 Corinthians 13: And if I donate all my goods to feed the poor,
+ and if I give my body to be burned,
  but do not have love, I gain nothing. (HCSB, 1 Corinthians 13:3)
 
 </div>Many Christians live under socialistic governments.Some Christians have even instituted such governments. Socialism isn't the worst government Christians have lived under, but it's better when Christians have the freedom to exercise charity out of choice and ideally out of love.On the other hand, freedom only has the desired effect when people exercise their freedom charitably.
@@ -19,16 +19,11 @@ The problem with charity coming from government is it takes away the personal as
 
 - - - - - -
 
- HCSB = The Holy Bible : Holman Christian Standard Version. <div class="copy">©2008 Perry Vernon Webb. You may quote this page in part or the whole as long as you   
- 1) do not alter the wording and   
+ HCSB = The Holy Bible : Holman Christian Standard Version. <div class="copy">©2008 Perry Vernon Webb. You may quote this page in part or the whole as long as you
+ 1) do not alter the wording and
  2) reference this Internet page as the source of the quote. </div> </div>- [Back to home page.](noframesindex.html)
 - [Back to "Answers to Some Philosophical Questions".](philosop.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

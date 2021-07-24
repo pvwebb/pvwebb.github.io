@@ -31,16 +31,11 @@ While God has communicated to us through the Bible, our primary means of communi
 
 The sign God gave Moses so he would know God sent him was that he would bring Israel out of Egypt to worship God on the same mountain where God spoke to him (Exodus 3:12). Later when Moses was there with the people, he asked God to let him see Him (Exodus 33:17-18). God only allowed Moses to see His back (Exodus 33:19-23). We cannot see God's face, what He will do in the future. We seldom recognize what He is doing now. We best recognize God when we look back and see what He has done.
 
- Note: I took this approach to answer the philosophical question, "Why is God invisible?" This is not how I would approach a systematic theology. <div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script><div class="copy">©2007 Perry Vernon Webb. You may quote this page in part or the whole as long as you   
- 1) do not alter the wording and   
+ Note: I took this approach to answer the philosophical question, "Why is God invisible?" This is not how I would approach a systematic theology. <div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script><div class="copy">©2007 Perry Vernon Webb. You may quote this page in part or the whole as long as you
+ 1) do not alter the wording and
  2) reference this Internet page as the source of the quote. </div> </div>- [Back to home page.](noframesindex.html)
 - [Back to "Answers to Some Philosophical Questions".](philosop.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

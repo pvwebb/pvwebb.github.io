@@ -10,11 +10,6 @@ Then the men stepped forward, seized Jesus and arrested him. With that, one of J
  Matthew 26:50-52, NIV</div><div class="p">Peter<div class="footnote">(John 18:10)</div> had taken Jesus' previous statement about swords<div class="footnote">(Luke 22:36-38)</div> literally. Peter was willing to die fighting, but was unwilling to face arrest without a fight. In this situation the disciples fled<div class="footnote">(Matthew 26:56)</div>. Later Peter denied knowing Christ<div class="footnote">(Matthew 26:69-75)</div> rather than risk being discovered. We cannot take this passage to say that Christians should never fight in a war for any reason. It does tell us something about religious battles. Jesus made it clear that He did not come to bring peace<div class="footnote">(Matthew 10:34-36)</div>, but this struggle is not with might to force people to submit to God<div class="footnote">(Zechariah 4:6)</div>. It is a battle to gain submission of the inner person to God<div class="footnote">(Luke 17:20-21)</div>.</div><div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script> </div>- [Back to home page.](noframesindex.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

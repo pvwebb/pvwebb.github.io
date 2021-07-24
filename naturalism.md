@@ -21,16 +21,11 @@ Many naturalists aren't so quick to abandon human volition and responsibility. S
 
 Christianity answers how the universe began with God, who created the universe with purpose. Christianity explains the human mind with God creating humans in His image. The human mind is a lesser expression of who God is.While the human mind is no comparison to God's infinite wisdom, God does relate to humans with redemptive purpose.We cannot find God through our knowledge, but, by becoming one of us, God revealed Himself to us in a way we can relate.
 
-<div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script><div class="copy">©2011 Perry Vernon Webb. You may quote this page in part or the whole as long as you   
- 1) do not alter the wording and   
+<div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script><div class="copy">©2011 Perry Vernon Webb. You may quote this page in part or the whole as long as you
+ 1) do not alter the wording and
  2) reference this Internet page as the source of the quote. </div>  </div>- [Back to home page.](noframesindex.html)
 - [Back to "Answers to Some Philosophical Questions".](philosop.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

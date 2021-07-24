@@ -11,33 +11,28 @@ Only the least oppressed have the luxury to retaliate successfully. The most opp
 
 [Consider Joseph](joseph.html). His circumstances were unquestionably unfair. He didn't complain or retaliate to improve his circumstances, but quite the opposite. He had such unquestionable integrity that he stood out from those around him. Each master trusted him as a responsible individual (Genesis 39:4-6, 22-23; 41:39-40). God's providence brought him from a slave and a prisoner to second in command in Egypt (Genesis 41:39-40). However, God blessed Joseph's living by His standards and depending on Him for strength.
 
-<div class="p">The simple words of Proverbs 3 summarizes this wisdom from above: My son, do not forget my teaching,   
- but keep my commands in your heart,   
- for they will prolong your life many years   
+<div class="p">The simple words of Proverbs 3 summarizes this wisdom from above: My son, do not forget my teaching,
+ but keep my commands in your heart,
+ for they will prolong your life many years
  and bring you prosperity.
 
-Let love and faithfulness never leave you;   
- bind them around your neck,   
- write them on the tablet of your heart.   
- Then you will win favor and a good name   
+Let love and faithfulness never leave you;
+ bind them around your neck,
+ write them on the tablet of your heart.
+ Then you will win favor and a good name
  in the sight of God and man.
 
-Trust in the LORD with all your heart   
- and lean not on your own understanding;   
- in all your ways acknowledge him,   
+Trust in the LORD with all your heart
+ and lean not on your own understanding;
+ in all your ways acknowledge him,
  and he will make your paths straight.
 
-Do not be wise in your own eyes;   
+Do not be wise in your own eyes;
  fear the LORD and shun evil....
 
  Proverbs 3:1-7, NIV</div><div class="copy">©2000 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](noframesindex.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

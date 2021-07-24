@@ -8,11 +8,6 @@
 <div class="p">Genuine love also results in action. However, it should do so because it is our motive. Christian love begins with the emotion resulting<div class="footnote">(1 John 4:19)</div> from Christ's sacrificial life and death<div class="footnote">(John 3:16; 1 John 4:10)</div> for us, who are undeserving sinners<div class="footnote">(Romans 5:6-8)</div>. Curiosity, ambition, indignation, as well as pride, hate<div class="footnote">(1 John 2:9-11; 3:15; 4:20)</div>, greed, anger<div class="footnote">(Matthew 5:21-24; Romans 12:19)</div>, and fear<div class="footnote">(1 John 4:18)</div> can motivate people. Maybe sometimes other emotions are justified, but love should be what is the primary motive for our actions. We should return God's love because of the love He has shown us<div class="footnote">(1 John 4:19)</div>. We should also show more concern for others than ourselves just as Christ did<div class="footnote">(Philippians 2:1-11)</div>.</div><div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script>  </div>- [Back to home page.](noframesindex.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

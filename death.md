@@ -12,11 +12,6 @@
  1 Corinthians 15:50-57 <div class="p">Someone might say, "How do you know anything about life after death? Do you know someone who has ever been to Heaven or who has died and come back?" But we who know Jesus Christ know someone who has done just this <div class="footnote">(John 3:13; 21:1, 4, 7; Acts 1:3-9)</div>. Not only has He told us about Heaven and life after death <div class="footnote">(Matthew 22:30; Mark 12:25)</div>, but also He has provided the means for us to go to Heaven (John 3:14-17). He also told us the consequences of rejecting His offer (John 3:17-21; Luke 16:27-31).</div><div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script>  </div>- [Back to home page.](noframesindex.html)
 - [Back to "Answers to Some Philosophical Questions".](philosop.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

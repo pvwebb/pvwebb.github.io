@@ -147,22 +147,22 @@ div.Section1
 <span style="font-size:14.0pt">The five points of Calvinism making up the acrostic, </span><span style="font-size:14.0pt;color:red">TULIP</span><span style="font-size:14.0pt">, describe salvation from God's perspective. We need to balance this with the responsibilities God expects from us.The list below links to separate discussions for each point: </span>
 
 <span style="font-size:14.0pt;color:red">T</span><span style="font-size:
-14.0pt">otal depravity (TBD)   
+14.0pt">otal depravity (TBD)
  </span><span style="font-size:14.0pt;color:red">U</span><span style="font-size:
-14.0pt">nconditional election (TBD)   
+14.0pt">nconditional election (TBD)
  </span><span style="font-size:14.0pt;color:red">L</span><span style="font-size:
-14.0pt">imited atonement (TBD)   
+14.0pt">imited atonement (TBD)
  </span><span style="font-size:14.0pt;color:red">I</span><span style="font-size:
-14.0pt">rresistible grace (TBD)   
+14.0pt">rresistible grace (TBD)
  </span><span style="font-size:14.0pt;color:red">P</span><span style="font-size:
 14.0pt">erseverance of the saints (TBD)</span>
 
-<span class="GramE">*©2004 Perry Vernon Webb.*</span> *You may quote this page in part or the whole as long as you   
- 1) do not alter the wording and   
+<span class="GramE">*©2004 Perry Vernon Webb.*</span> *You may quote this page in part or the whole as long as you
+ 1) do not alter the wording and
  2) reference this Internet page as the source of the quote.*
 
-*[<span class="GramE">How to receive a new life in Christ.</span> ](gospel.html)  
-   
+*[<span class="GramE">How to receive a new life in Christ.</span> ](gospel.html)
+
  <span style="mso-bidi-font-style:italic"></span>*
 
 <div style="border:solid black 1.0pt;padding:6.0pt 6.0pt 6.0pt 6.0pt"><span style="font-size:10.0pt">Click ![](images/LibronixLink.gif)next to Bible references to open [Logos Bible Software Series X](http://www.logos.com/products/ldls) directly to the passage. [Learn more](http://www.logos.com/support/weblinking) about linking directly to Logos and find other web sites that support integrated Bible study.</span>
@@ -171,10 +171,7 @@ div.Section1
 
 *[<span style="font-size:13.5pt">Back to home page.</span>](noframesindex.html)*
 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[<span style="color:blue;text-decoration:none;text-underline:none">![digits](images/wc-03.gif)</span>](http://www.digits.com/)
-
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- </div> 
+ </div>
+

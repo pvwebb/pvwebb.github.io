@@ -9,16 +9,11 @@ Sigmund Freud explained faith in God as wishful thinking (*The Future of an Illu
 
 If we limit origin of human life to survival of the fittest, then we commit intellectual suicide by undermining cognition having a basis in reality. If we claim more than survival of the fittest explains the origin of human life, then what does? Does that something else give us purpose in life or an object worthy of worship? God, as presented in Christianity, gives us purpose and a worthy object of worship.
 
-<div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script><div class="copy">©2011 Perry Vernon Webb. You may quote this page in part or the whole as long as you   
- 1) do not alter the wording and   
+<div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script><div class="copy">©2011 Perry Vernon Webb. You may quote this page in part or the whole as long as you
+ 1) do not alter the wording and
  2) reference this Internet page as the source of the quote. </div> </div>- [Back to home page.](noframesindex.html)
 - [Back to "Answers to Some Philosophical Questions".](philosop.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

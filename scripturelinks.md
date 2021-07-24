@@ -14,7 +14,8 @@
 - <div class="button">[\* attributes...](impacts.html#life1)</div>
 - <div class="button">[\* response...](impacts.html#life2)</div>
 - <div class="button">[\* temptation...](impacts.html#life3)</div>
-- <div class="button">[THE LAST TIMES  
+- <div class="button">[THE LAST TIMES
   (The Conclusion)](impacts.html#last)</div>
 
 </div>
+

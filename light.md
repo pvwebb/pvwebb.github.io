@@ -9,16 +9,11 @@ Jesus described this lifestyle with the word *kalos,* translated "good" in "good
 
 In the phrase "praise your Father in heaven," the word translated "praise" is *doxazo*. It's noun form, *doxa*, means *glory* or *praise*. Paul used it's primary meaning in Acts 22:11 when he described the *brightness* of the light that blinded him. Recognizing God's glory, the brilliance of His light, is an important element of praising God. He alone must be the source of glory. We let God's light shine in our lives when we let the light of His revelation in the Scriptures reflect off our lives (2 Corinthians 3:18) through the indwelling Holy Spirit. When people see God's word transforming our lives, that substantiates God's word to them through our testimony.
 
-<div class="copy">©2002 Perry Vernon Webb. You may quote this page in part or the whole as long as you  
- 1) do not alter the wording and  
+<div class="copy">©2002 Perry Vernon Webb. You may quote this page in part or the whole as long as you
+ 1) do not alter the wording and
  2) reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](noframesindex.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

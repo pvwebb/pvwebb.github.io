@@ -21,15 +21,16 @@ a.lbxSmallSearchTooltip:hover span {position: absolute;margin:15px 0px 0px
 ==============================
 
 <div class="gradientbuttons">- <div class="button">[![home](images/home.gif) &amp;nbsp Home](noframesindex.html)</div>
-- <div class="button">[![Confessions of Faith](images/Bible.gif)   
+- <div class="button">[![Confessions of Faith](images/Bible.gif)
    Confessions of Faith](confess.html)</div>
-- <div class="button">[![Where I stand](images/luther.jpg)   
+- <div class="button">[![Where I stand](images/luther.jpg)
    Where I stand](stance.html)</div>
-- <div class="button">[![Answers to Some Philosophical Questions](images/thinker2.gif)   
+- <div class="button">[![Answers to Some Philosophical Questions](images/thinker2.gif)
    Philosophical Questions](philosop.html)</div>
 - <div class="button">[![links](images/links.gif) &amp;nbsp Links](links.html)</div>
-- <div class="button">[![Logos Research Systems](images/lrs1.gif)![Logos Library Systems](images/lls.gif)  
+- <div class="button">[![Logos Research Systems](images/lrs1.gif)![Logos Library Systems](images/lls.gif)
   Favorite Bible Software](http://www.logos.com/)</div>
 
-</div><center><div id="lbxSmallSearchContainer"><div id="lbxSmallSearchField"> <form action="http://bible.logos.com/search/" id="lbxSmallSearchForm" target="_blank"> <input class="lbxBlurred" id="lbxSearchQuery" name="query" onclick="this.value=''" type="text" value="Search the Bible"></input> <input id="go" src="http://www.logos.com/images/biblesearchbar/LBSbug.gif" type="image" value=" "></input> </form> </div><div id="lbxSmallSearchFooter"> [![info](http://www.logos.com/images/biblesearchbar/info.gif)<span> </span>](#) [Online Bible](http://bible.logos.com) by [Logos](http://www.logos.com/demo?biblesearchbox)</div>   
+</div><center><div id="lbxSmallSearchContainer"><div id="lbxSmallSearchField"> <form action="http://bible.logos.com/search/" id="lbxSmallSearchForm" target="_blank"> <input class="lbxBlurred" id="lbxSearchQuery" name="query" onclick="this.value=''" type="text" value="Search the Bible"></input> <input id="go" src="http://www.logos.com/images/biblesearchbar/LBSbug.gif" type="image" value=" "></input> </form> </div><div id="lbxSmallSearchFooter"> [![info](http://www.logos.com/images/biblesearchbar/info.gif)<span> </span>](#) [Online Bible](http://bible.logos.com) by [Logos](http://www.logos.com/demo?biblesearchbox)</div>
 <script src="http://www.logos.com/media/Scripts/BibleSearchBar.js" type="text/javascript"></script></div></center>
+

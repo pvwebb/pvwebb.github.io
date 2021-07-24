@@ -38,11 +38,6 @@ Jethro was delighted to hear about all the good things the LORD had done for Isr
 <div class="p">By the infinite God becoming a finite human being, He put who He is in a form that our finite minds can understand. He is not cold or impersonal, but a perfect Person<div class="footnote">(Hebrews 4:15-16; 7:26)</div>. His perfection exposes our lack of being the person that we should be<div class="footnote">(Leviticus 19:2; Matthew 5:48; Ephesians 5:1-2; 1 Peter 1:15-16)</div>. </div><div class="copy">©1999 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div><div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script> <a name="chart"></a>[![The Plagues and the Gods and Goddesses of Egypt](images/plaguesgodsegypt.png)](#plagues)  </div>- [Back to home page.](noframesindex.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

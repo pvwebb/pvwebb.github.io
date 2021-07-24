@@ -15,16 +15,11 @@ How would you rewrite *A Christmas Carol* to fit the present? A movie conveying 
 
 <div class="p">Before his death, one of the world&#146;s richest men said that he would have given all his wealth to make one of his six marriages succeed. It&#146;s one thing to make a living, but quite something else to make a life. (Wiersbe, W. W. (1995). *Be skillful*. Wheaton: Victor Books.)
 
-</div><div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you  
- 1) do not alter the wording and  
+</div><div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you
+ 1) do not alter the wording and
  2) reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](noframesindex.html)
 - [Back to "Where I stand".](stance.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

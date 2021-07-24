@@ -25,3 +25,4 @@
 </sup>"No servant can serve two masters. Either he will hate the one and love the other, or he will be devoted to the one and despise the other. You cannot serve both God and Money." </font><sup>14
 
 </sup>The Pharisees, who loved money, heard all this and were sneering at Jesus. <sup> 15 </sup>He said to them, <font color="#ff0000">"You are the ones who justify yourselves in the eyes of men, but God knows your hearts. What is highly valued among men is detestable in God's sight.</font> (Luke 16:1-14, *The New International Version*)  <font size="2"></font>
+

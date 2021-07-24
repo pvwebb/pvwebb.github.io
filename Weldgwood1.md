@@ -1,9 +1,9 @@
- <head> <title>(PVW) Cassie Griffin and Shawn Brown--Wedgwood Baptist Church</title> <meta content="IE=9" http-equiv="X-UA-Compatible"></meta> <link href="css/page_style.css" rel="stylesheet" type="text/css"></link> </head><body><div class="page_style"> Cassie Griffin and Shawn Brown--Wedgwood Baptist Church 
+ <head> <title>(PVW) Cassie Griffin and Shawn Brown--Wedgwood Baptist Church</title> <meta content="IE=9" http-equiv="X-UA-Compatible"></meta> <link href="css/page_style.css" rel="stylesheet" type="text/css"></link> </head><body><div class="page_style"> Cassie Griffin and Shawn Brown--Wedgwood Baptist Church
 --------------------------------------------------------
 
 Cassie Griffin and Shawn Brown were two of the seven people killed by a gunman at [Wedgwood Baptist Church](http://www.wedgwoodbc.org/) on September 15, 1999. The following e-mail message from [Betty Wilson](<mailto: ejwilson@juno.com>) contains [Donna Haygood Sarchet](<mailto: sarchet@WBU1.WBU.EDU>)'s account remembering Cassie Griffin and [Ryan McDaniel](<mailto: theryanmcdaniel@hotmail.com>)'s account remembering Shawn Brown.
 
-###  Letter from Betty Wilson 
+###  Letter from Betty Wilson
 
 <div class="p">I share this so that you may pray. Donna Haygood Sarchet is a precious friend.
 
@@ -57,18 +57,13 @@ If there is one thing Shawn could leave with you it would be to make it known ho
 
 Now we know that in order to obtain salvation that it can only come through Jesus who lived a perfect life without sin and then died on a cross for the sins of mankind. If you want to accept Jesus into your heart then all that you have to do is tell Jesus you are a sinner and ask him to come into you life and forgive you of your sins so that you may spend eternal life with him. If you have any questions about this please e-mail me at theryanmcdaniel@hotmail.com and I will help you understand who Jesus is and what he has planned for your life. If you are already a Christian then please pass this note to a friend who may not know Jesus in a personal way. Do not be afraid to send it out. The words have already been written you just need to have the courage to be bold for Christ and forward this opportunity for someone else to have the chance of spending eternity with God.
 
-Sincerely,  
+Sincerely,
 Ryan McDaniel
 
  </div></div>- [Back to home page.](noframesindex.html)
 - [Back to Confessions of Faith](confess.html)
 - [Back to "Personal Testimonies"](testimon.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

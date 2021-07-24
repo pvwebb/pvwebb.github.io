@@ -3,7 +3,7 @@
 
 <div class="p">Now before faith came, we were held captive under the law, imprisoned until the coming faith would be revealed. So then, the law was our guardian until Christ came, in order that we might be justified by faith. But now that faith has come, we are no longer under a guardian, for in Christ Jesus you are all sons of God, through faith. (Galatians 3:23-26, ESV)
 
-</div><div class="p">Why couldn't Christ have come without waiting for God to give Moses the Law? Paul illustrated why with the term, *paidagogos* (guardian). In Paul's day *paidagogos* referred to the following: The slave assigned to this role would watch out for the student on his way to school and help him with his manners and schoolwork, but he was not the teacher himself. Children sometimes resented but often grew fond of their slave guardians and later freed them.  
+</div><div class="p">Why couldn't Christ have come without waiting for God to give Moses the Law? Paul illustrated why with the term, *paidagogos* (guardian). In Paul's day *paidagogos* referred to the following: The slave assigned to this role would watch out for the student on his way to school and help him with his manners and schoolwork, but he was not the teacher himself. Children sometimes resented but often grew fond of their slave guardians and later freed them.
  \[Keener, C. S. (1993). *The IVP Bible background commentary : New Testament* (Ga 3:24). Downers Grove, Ill.: InterVarsity Press.\]
 
 </div>While Paul in Galatians 3:23-26 explains the relationship of the law to grace, his illustration confirms children need more supervision and less responsibility than adults. Parents need to make important decisions for children until they demonstrate the ability to make responsible decisions.
@@ -18,16 +18,11 @@ Children need their parents to guide them, teach them (Deuteronomy 6:6-7), and d
 
 Just as some in our society push children into adulthood, others assert grace without the preexistence of law. They want grace as an indulgence, tearing down the standards, rather than grace renewing the heart to desire and live by God's standards. That's why the law came (Galatians 3:19) before Christ.
 
-<div class="copy">©2002 Perry Vernon Webb. You may quote this page in part or the whole as long as you  
- 1) do not alter the wording and  
+<div class="copy">©2002 Perry Vernon Webb. You may quote this page in part or the whole as long as you
+ 1) do not alter the wording and
  2) reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](noframesindex.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

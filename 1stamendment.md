@@ -13,16 +13,11 @@ The purpose of the establishment clause is to prevent government from forcing ci
 
  ![](images/praying.gif)![](images/worship.gif)The First Amendment gives people the legal right to disagree with the government both through speaking and writing, even to the point of the petition process. It does NOT give the right to protest with violence against the government. This amendment eliminates the need for violent rebellion and allows peaceful means to rectify grievances.
 
- ![](images/church2.gif)![](images/churchsmall.gif)<div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you  
- 1) do not alter the wording and  
+ ![](images/church2.gif)![](images/churchsmall.gif)<div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you
+ 1) do not alter the wording and
  2) reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](noframesindex.html)
 - [Back to "Where I stand".](stance.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

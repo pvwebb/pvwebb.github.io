@@ -7,16 +7,11 @@
 
 </div><div class="p">The context doesn't end here. When Goliath challenged the Israelites, no one, including Saul accepted it<div class="footnote">(1 Samuel 17:1-11)</div>, because Goliath was much larger. However, David came to the battle area bringing food to his three oldest brothers<div class="footnote">(1 Samuel 17:11-24)</div>. David, with his shepherd-boy clothes and weapon<div class="footnote">(1 Samuel 17:32-40)</div>, accepted the challenge of the giant Goliath. Goliath died laughing<div class="footnote">(1 Samuel 17:41-51)</div>.</div><div class="p">When Saul realized God had chosen David to succeed him, he pursued David even when his own son recognized God chose David<div class="footnote">(1 Samuel 18:28; 1 Samuel 19:1-20:42; 23:17-18)</div>. In contrast, David spared Saul's life, but Saul sought to kill David<div class="footnote">(1 Samuel 24:4-22; 26:6-25)</div>. David realized it was up to God to make him king.</div><div class="p">David didn't have a passive personality. He was a fierce warrior and used his God-given opportunities. After David and his men lived among the Philistines<div class="footnote">(1 Samuel 27:1-12)</div>, Israel no longer needed to go to the Philistines for iron tools<div class="footnote">(1 Samuel 13:19-22)</div>. Apparently, they learned the Philistines' secret. But, David realized taking the opportunities God gave meant doing what was right rather than making one's own opportunities through justifying the wrong means. Saul was willing to let the end justify the means<div class="footnote">(1 Samuel 13:8-14; 15:1-30)</div>. Saul's behavior approached insanity.</div><div class="p">In case those earnestly seeking to do God's will misplace their pride, history continues with David committing the grievous crimes of adultery with Bathsheba and the murder of her husband<div class="footnote">(2 Samuel 11:1-15)</div>, Uriah. From outward appearance, Saul's disobedience<div class="footnote">(1 Samuel 15:1-35)</div> seems petty compared to David's crimes. Both of David's crimes carried a death sentence under Jewish law. The murder of Uriah could carry a death sentence even today.</div><div class="p">However, David's response to the rebuke from God's prophet was very different from Saul's. When Nathan confronted David, he acknowledged the seriousness of his sins<div class="footnote">(2 Samuel 12:1-22)</div>. Saul denied his sin until Samuel told him the consequences<div class="footnote">(1 Samuel 15:19-31)</div>. Then, Saul spent the rest of his life trying to kill David to undo those consequences.</div>No matter how much we turn our thoughts, desires, and feelings over to God, we still fall short of God's heart. But, how open are we to God's correction in our lives? How receptive are we to whoever or whatever God sends to correct us?
 
-<div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script><div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you  
- 1) do not alter the wording and   
+<div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script><div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you
+ 1) do not alter the wording and
  2) reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](noframesindex.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

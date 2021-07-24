@@ -9,16 +9,11 @@ Another example of God's grace intervening in weakness is when my father-in-law 
 
 We can give endless examples of God's grace caring for us while vulnerable. How do we explain God's grace? I gave up long ago. When God gives grace to the weak, it seems inherently unfair to those left facing hardship. Consider the parable Jesus told about the landowner hiring people to work his field ([Matthew 20:1-16](http://www.biblegateway.com/passage/?search=Matthew+20:1-16)).Only justice gives us a since of fairness. But, without grace everyone falls short ([Romans 3:23](http://www.biblegateway.com/passage/?search=Romans+3:23) ). We are all too weak to make it on our own. A great gift is when God points out our weaknesses, so we realize it.
 
-<div class="copy">©2005 Perry Vernon Webb. You may quote this page in part or the whole as long as you  
- 1) do not alter the wording and  
+<div class="copy">©2005 Perry Vernon Webb. You may quote this page in part or the whole as long as you
+ 1) do not alter the wording and
  2) reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](noframesindex.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

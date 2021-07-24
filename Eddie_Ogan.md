@@ -43,11 +43,6 @@ Suddenly it struck us! We had given $87 of that "little over $100." We were the 
 - [Back to "A list of the benefits the Christian receives from suffering.".](benefits_suffering.html)
 - [Back to "Answers to Some Philosophical Questions".](philosop.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

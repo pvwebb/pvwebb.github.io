@@ -9,16 +9,11 @@ When society gives in to this temptation, it loses the vision of truth anchored 
 
 The extreme of succumbing to the temptation to convince by any means leads to religion dominated by charlatans. It views deception as OK if it helps convince someone to believe. Deception and dishonesty can never be justified, especially in matters concerning faith. Dishonesty is synonymous with unfaithfulness. Deception is inconsistent with God's character (Hebrews 6:17-18) and distorts any attempt to convey who God is.
 
-<div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you  
- 1) do not alter the wording and   
+<div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you
+ 1) do not alter the wording and
  2) reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](noframesindex.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

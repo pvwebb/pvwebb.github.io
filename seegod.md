@@ -3,7 +3,7 @@
 
 <div class="p">Then I will remove my hand and you will see my back; but my face must not be seen." (Exodus 33:23, NIV)
 
- Context: Exodus 33:12-23</div> [Longer version](seegodlongver.html).  
+ Context: Exodus 33:12-23</div> [Longer version](seegodlongver.html).
  ![](images/moses.gif)Why did God only let Moses see His back? We must admit much of this passage is a mystery to us. To some degree, we can understand our inability to see God's face because of His holiness. But, why allow Moses to see His back? What God's back looked like is a total mystery. It's not the kind of passage a moviemaker likes to dramatize. But, what was God telling Moses by showing His back.
 
 In Romans 9:15, Paul quotes from this context, "I will have mercy on whom I will have mercy, and I will have compassion on whom I will have compassion." (Exodus 33:19b, NIV) The context of Romans 9 is God's part in the lives of people; in particular, in the lives of the Jews who didn't follow Christ. This implies God was telling Moses something about His interaction with people.
@@ -15,11 +15,6 @@ In Romans 9:15, Paul quotes from this context, "I will have mercy on whom I will
 <div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](noframesindex.html)
 - [Back to "Scriptural Impacts".](impacts.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

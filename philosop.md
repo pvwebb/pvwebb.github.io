@@ -37,13 +37,8 @@
 
 Other subjects to be added later.
 
- </div>    
- [Back to home page.](noframesindex.html)   
-  
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
+ </div>
+ [Back to home page.](noframesindex.html)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

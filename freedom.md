@@ -14,11 +14,6 @@ It is difficult to have any religious related activities in public schools and i
 <div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script> </div>- [Back to home page.](noframesindex.html)
 - [Back to "Where I stand".](stance.html)
 - [How to receive a new life in Christ.](gospel.html)
- 
-![](http://counter.digits.com/wc/-d/4/pvwebb)
-
-[![digits](images/wc-03.gif)](http://www.digits.com/)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 
- 

@@ -1,1 +1,0 @@
-<meta content="IE=9" http-equiv="X-UA-Compatible"></meta></head><frameset border="0" cols="25,112,32" frameborder="0" framespacing="0"> <frame name="navframe" src="mainlinks.html"></frame> <frame name="largeframe" src="noframesindex.html"></frame> <frame name="narrowframe" src="scripturelinks.html"></frame></frameset>

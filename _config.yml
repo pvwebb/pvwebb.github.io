@@ -10,7 +10,7 @@ relative_links:
   enabled:     true
   collections: false
 include:
-  - *.md
+  - ./*.md
 header_pages:
   - index.md
   - confess.md

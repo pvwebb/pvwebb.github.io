@@ -1,11 +1,13 @@
- <head> <title>(PVW) Gospel</title> <meta content="IE=9" http-equiv="X-UA-Compatible"></meta> <link href="css/page_style.css" rel="stylesheet" type="text/css"></link> </head><body><div class="page_style">Try the following links.
+title: (PVW) Gospel
 ------------------------
 
-[How to Become A Christian (SBC.net)](http://www.sbc.net/knowjesus/default.asp)
+# Try the following links:
+
+[How to Become A Christian (SBC.net)](https://web.archive.org/web/20120930151418/http://www.sbc.net/knowjesus/default.asp)
 
 [Tell Me About Jesus (NAMB SBC)](http://web.archive.org/web/20081006071559/http://www.namb.net/root/tellme/)
 
-[Life's Most Important Question (SWBTS)](http://www.swbts.edu/index.cfm?pageid=1728)
+[Life's Most Important Question (SWBTS)](https://web.archive.org/web/20120607111253/http://www.swbts.edu/index.cfm?pageid=1728)
 
 [Flash Gospel Presentation (kidzplace.org)](http://web.archive.org/web/20010305210747/http://kidzplace.org/Gospel/Gospel.htm)
 
@@ -15,11 +17,11 @@
 
 [Steps To Peace With God (Billy Graham)](http://www.billygraham.org/articlepage.asp?articleid=470)
 
-[Have You Heard of the Four Spiritual Laws? (Campus Crusade)](http://www.crusade.org/fourlaws/)
+[Have You Heard of the Four Spiritual Laws? (Campus Crusade)](https://web.archive.org/web/20051226222900/http://www.crusade.org/downloads/article/resources/4SpiritualLaws.pdf) [cru](https://crustore.org/four-laws-english)
 
-[The Bridge to Life (The Navigators)](http://www.navigators.org/us/resources/illustrations/items/The%20Bridge%20to%20Life)
+[The Bridge to Life (The Navigators)](https://www.navigators.org/resource/the-bridge-to-life/)
 
- </div>- [Back to home page.](index.md)
+- [Back to home page.](index.md)
 - [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)

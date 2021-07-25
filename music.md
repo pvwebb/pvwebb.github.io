@@ -15,9 +15,9 @@ God hears our hearts (1 Samuel 16:7; Luke 16:15) louder than our voices. He want
 
 <div class="copy">©2000 Perry Vernon Webb. You may quote this page in part or the whole as long as you
  1) do not alter the wording and
- 2) reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](index.html)
-- [Back to "Scriptural Impacts".](impacts.html)
-- [How to receive a new life in Christ.](gospel.html)
+ 2) reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](index.md)
+- [Back to "Scriptural Impacts".](impacts.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

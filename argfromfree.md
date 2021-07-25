@@ -7,11 +7,11 @@ If one believes the physical world limited to the scientific principles of cause
 
 Believing in an all-powerful, all-seeing, and all-knowing God, who has completely determined the course of history may sound the same as the above. This is because we are still putting the same limitations on reality, especially when we try to limit God to what our own mind can comprehend. However, God values a person's mind with its thoughts, desires, and motives (1 Samuel 16:7; 2 Chronicles 16:9) more than external behavior and circumstances.
 
-Free thought and choice only exist because [God values and preserves it](temptation.html). Even though people allow their desires to enslave them, God has still made the provision to set us free (John 15:15; Galatians 5:1, 13-14). An irony in life is that we do not find freedom to control our destiny by allowing our personal desires to control us. [We find freedom in submitting our lives to God](life.html). He not only provided the means of freedom through His Son, but His Son also gave us an example of how to live our lives (1 Peter 2:21).
+Free thought and choice only exist because [God values and preserves it](temptation.md). Even though people allow their desires to enslave them, God has still made the provision to set us free (John 15:15; Galatians 5:1, 13-14). An irony in life is that we do not find freedom to control our destiny by allowing our personal desires to control us. [We find freedom in submitting our lives to God](life.md). He not only provided the means of freedom through His Son, but His Son also gave us an example of how to live our lives (1 Peter 2:21).
 
-<div class="copy">©2000 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote. </div>  </div>- [Back to home page.](index.html)
-- [Back to "Answers to Some Philosophical Questions".](philosop.html)
-- [How to receive a new life in Christ.](gospel.html)
+<div class="copy">©2000 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote. </div>  </div>- [Back to home page.](index.md)
+- [Back to "Answers to Some Philosophical Questions".](philosop.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

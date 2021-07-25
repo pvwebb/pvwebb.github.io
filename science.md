@@ -17,9 +17,9 @@ Our scientific models have difficulty dealing with a single universe. If we had 
 
 All deductive proofs must start with assumptions, often called axioms or postulates. Inductive proofs require testing every single case. A contradiction in just one case is sufficient for disproof in inductive reasoning. While someone may be able to evaluate every case theoretically in such disciplines as mathematics, only God has this capability considering every case in the real world. Thus, people cannot prove anything that is real without first starting with a set of beliefs.
 
-  </div>- [Back to home page.](index.html)
-- [Back to "Answers to Some Philosophical Questions".](philosop.html)
-- [How to receive a new life in Christ.](gospel.html)
+  </div>- [Back to home page.](index.md)
+- [Back to "Answers to Some Philosophical Questions".](philosop.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

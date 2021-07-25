@@ -60,10 +60,10 @@ Now we know that in order to obtain salvation that it can only come through Jesu
 Sincerely,
 Ryan McDaniel
 
- </div></div>- [Back to home page.](index.html)
-- [Back to Confessions of Faith](confess.html)
-- [Back to "Personal Testimonies"](testimon.html)
-- [How to receive a new life in Christ.](gospel.html)
+ </div></div>- [Back to home page.](index.md)
+- [Back to Confessions of Faith](confess.md)
+- [Back to "Personal Testimonies"](testimon.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

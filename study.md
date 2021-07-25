@@ -9,9 +9,9 @@ It is not hard to believe that someone whom God called to serve might slip into 
 
 While in college there was a friend who didn't impress people that well and struggled in school. He had lived ok by our society's standards, but immoral by Biblical standards before coming to Christ. Later when called to preach, he asked his pastor how he could he be a pastor after having lived immorally? The pastor reminded him that we are all sinners saved by grace. It is who we are now in the presence of God that matters. Thus, he answered God's call and started studying Bible in college. His main concern in college was pleasing God.
 
-  </div>- [Back to home page.](index.html)
-- [Back to "Scriptural Impacts".](impacts.html)
-- [How to receive a new life in Christ.](gospel.html)
+  </div>- [Back to home page.](index.md)
+- [Back to "Scriptural Impacts".](impacts.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

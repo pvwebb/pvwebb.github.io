@@ -24,7 +24,7 @@ People are definitely not born monogamous. In fact monogamy seems to be limited 
 
 We cannot stand back and be silent while the homosexual agenda pushes to educate children to accept immoral life styles and pushes to continually lower the age that a consenting adult/child can legally engage in sexual activity with an adult. While standing for God's standard of limiting sexual relationships to a man and woman committed to a marriage relationship, we need to dispel ridicule and myths about homosexuality that lead a sinner into feelings of paranoia, of lack of responsibility, and of the inability to escape from that situation.
 
- [The Consequences of Equal Rights for Homosexuality upon Our Society](hs_agenda.html)### Links to another site that further discusses these issues:
+ [The Consequences of Equal Rights for Homosexuality upon Our Society](hs_agenda.md)### Links to another site that further discusses these issues:
 
 #### *Focus on the Family* links:
 
@@ -40,10 +40,10 @@ We cannot stand back and be silent while the homosexual agenda pushes to educate
  [Why should I save sex for marriage?](http://www.christiananswers.net/q-sum/sum-f001.html)
  [What are the consequences of sexual immorality?](http://www.christiananswers.net/q-eden/edn-f007.html)
 
- </div>- [Newer edition of this page.](homosexual2.html)
-- [Back to home page.](index.html)
-- [Back to "Where I stand".](stance.html)
-- [How to receive a new life in Christ.](gospel.html)
+ </div>- [Newer edition of this page.](homosexual2.md)
+- [Back to home page.](index.md)
+- [Back to "Where I stand".](stance.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

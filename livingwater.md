@@ -13,9 +13,9 @@ The man brought me back to the entrance of the temple, and I saw water coming ou
 
 Jesus also used "breath" or "wind" to refer to the "Spirit" (John 3:5-8). In fact, the same word in the original languages of both the Old Testament and New Testament means "breath," "wind," or "spirit." Genesis 2:7 has the term, "breath of life," for when God breathed life into Adam.
 
-  </div>- [Back to home page.](index.html)
-- [Back to "Scriptural Impacts".](impacts.html)
-- [How to receive a new life in Christ.](gospel.html)
+  </div>- [Back to home page.](index.md)
+- [Back to "Scriptural Impacts".](impacts.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

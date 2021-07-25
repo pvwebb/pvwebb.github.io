@@ -11,7 +11,7 @@ By far, the most important tool for interpreting the scriptures is to know the B
 
 ### The following are links to articles designed to help those who don't understand the languages of the original texts to gain some insight about these particular topics.
 
-[World](world.html) (updated 9/28/2007)
+[World](world.md) (updated 9/28/2007)
 
 Believing, Faith, and Faithful (TBD)
 
@@ -21,9 +21,9 @@ Heart and the Inner Person (TBD)
 
 Husband and Man, Wife and Woman (TBD)
 
- <div class="copy">©2007 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](index.html)
-- [Back to Confessions of Faith](confess.html)
-- [How to receive a new life in Christ.](gospel.html)
+ <div class="copy">©2007 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](index.md)
+- [Back to Confessions of Faith](confess.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

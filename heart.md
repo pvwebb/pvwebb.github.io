@@ -7,9 +7,9 @@
 
 Confessing Christ by itself does not save us. This confession must be real. It must reflect the presence of Jesus in our hearts. On the other hand, a secret internal faith in Christ that remains hidden is not a saving faith. Once our lives are immersed in Christ what is on the inside cannot help from coming out.
 
- </div>- [Back to home page.](index.html)
-- [Back to "Scriptural Impacts".](impacts.html)
-- [How to receive a new life in Christ.](gospel.html)
+ </div>- [Back to home page.](index.md)
+- [Back to "Scriptural Impacts".](impacts.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

@@ -69,7 +69,7 @@ If a minor goes to the doctor with an injury, the doctor quizzes the child about
 
 I'm not a person who protests at abortion clinics and definitely sees no justification for violence, especially killing, while protesting for the right to life. A protest with an impact would be to tell an abortion clinic, "If you let us protest in front of your clinic, we will stand as a human shield between you and anyone who tries to use a weapon on people in your clinic." My personality is not the kind that likes to be obnoxious, but I've seen anti-drug advertisements showing the misery of an infant born to a drug-addicted mother. Some of the right-to-life protestors have used similar tactics. To say the tactic is legitimate when you agree with its message, but should be illegal when you don't, is discriminatory.
 
-To the person who is struggling with guilt, whether from an abortion or some other reason, I have good news. [Jesus Christ came to earth and died so that you could be forgiven and have a new life in Him. ](gospel.html)Many unborn children did not die in vain. Many women who did not know this new life in Christ and who previously felt that an abortion was a legitimate alternative, after the guilt of the experience have now come to Christ.
+To the person who is struggling with guilt, whether from an abortion or some other reason, I have good news. [Jesus Christ came to earth and died so that you could be forgiven and have a new life in Him. ](gospel.md)Many unborn children did not die in vain. Many women who did not know this new life in Christ and who previously felt that an abortion was a legitimate alternative, after the guilt of the experience have now come to Christ.
 
 To the person who is either facing an unwanted pregnancy or struggling with the guilt of an abortion, the following link to [Crisis Pregnancy Centers Online](http://www.optionline.org/) lists local locations that offer help.
 
@@ -78,10 +78,10 @@ Note: I have given the moral reasons that I support protecting the right of the 
 
 <div class="copy">©2000 Perry Vernon Webb. You may quote this page in part or the whole as long as you
  1) do not alter the wording and
- 2) reference this Internet page as the source of the quote.</div>  </div>- [Previous edition of this page.](abortion.html)
-- [Back to home page.](index.html)
-- [Back to "Where I stand".](stance.html)
-- [How to receive a new life in Christ.](gospel.html)
+ 2) reference this Internet page as the source of the quote.</div>  </div>- [Previous edition of this page.](abortion.md)
+- [Back to home page.](index.md)
+- [Back to "Where I stand".](stance.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

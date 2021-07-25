@@ -39,10 +39,10 @@
  [Why should I save sex for marriage?](http://www.christiananswers.net/q-sum/sum-f001.html)
  [What are the consequences of sexual immorality?](http://www.christiananswers.net/q-eden/edn-f007.html)
 
- </div>- [Back to "Homosexuality."](homosexual.html)
-- [Back to home page.](index.html)
-- [Back to "Where I stand".](stance.html)
-- [How to receive a new life in Christ.](gospel.html)
+ </div>- [Back to "Homosexuality."](homosexual.md)
+- [Back to home page.](index.md)
+- [Back to "Where I stand".](stance.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

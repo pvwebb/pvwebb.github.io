@@ -7,26 +7,26 @@ From the sermon, "[Remaining Awake Through a Great Revolution](http://www.stanfo
 
 # Where I stand on:
 
-[Abortion](abortion2.html) (updated 7/15/2000)
+[Abortion](abortion2.md) (updated 7/15/2000)
 
-[The First Amendment](1stamendment.html) (updated 7/17/2001)
+[The First Amendment](1stamendment.md) (updated 7/17/2001)
 
-[Religious Freedom](freedom.html)
+[Religious Freedom](freedom.md)
 
-[Why has violence increased in public schools?](violence.html) (updated 8/10/2001)
+[Why has violence increased in public schools?](violence.md) (updated 8/10/2001)
 
-[Marriage, Divorce, and Human Sexuality](marriage.html)
+[Marriage, Divorce, and Human Sexuality](marriage.md)
 
-[Homosexuality](homosexual2.html) (updated 9/28/2000)
+[Homosexuality](homosexual2.md) (updated 9/28/2000)
 
-[A Modern Rendering of A Christmas Carol](christmascarol.html) (updated 9/5/2001)
+[A Modern Rendering of A Christmas Carol](christmascarol.md) (updated 9/5/2001)
 
-[What Defines a Real Hero?](heroes.html) (added 9/17/2001)
+[What Defines a Real Hero?](heroes.md) (added 9/17/2001)
 
 Other subjects to be added later:
 > "It is one small step from suggesting that witness for Christ engenders hate crimes to saying witness for Christ is a hate crime." (Paige Patterson)
 
-- [Back to home page.](index.html)
-- [How to receive a new life in Christ.](gospel.html)
+- [Back to home page.](index.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)

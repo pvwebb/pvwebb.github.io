@@ -3,7 +3,7 @@
 
 <div class="p">Jesus, knowing that they intended to come and make him king by force, withdrew again to a mountain by himself. (John 6:15, NIV)
 
- Context: John 6:8-15</div>What characterizes a society bowing to the temptation to force goodness upon the world through governmental might and authority? [Jesus resisted this temptation in the desert](temptation.html) and still faced it when people wanted to force His ministry into an earthly government. Such a society puts more emphasis on laws and external conformity than changing the heart to what God desires.
+ Context: John 6:8-15</div>What characterizes a society bowing to the temptation to force goodness upon the world through governmental might and authority? [Jesus resisted this temptation in the desert](temptation.md) and still faced it when people wanted to force His ministry into an earthly government. Such a society puts more emphasis on laws and external conformity than changing the heart to what God desires.
 
 <div class="p">Christian societies are far from immune to this temptation. The First Amendment to the Constitution of the United States of America helps protect us from this tendency: Congress shall make no law respecting an establishment of religion, or prohibiting the free exercise thereof; or abridging the freedom of speech, or of the press; or the right of the people peaceably to assemble, and to petition the Government for a redress of grievances.
 
@@ -13,9 +13,9 @@ When society squelches the ability of people to share their faith, it is forcing
 
 <div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you
  1) do not alter the wording and
- 2) reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](index.html)
-- [Back to "Scriptural Impacts".](impacts.html)
-- [How to receive a new life in Christ.](gospel.html)
+ 2) reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](index.md)
+- [Back to "Scriptural Impacts".](impacts.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

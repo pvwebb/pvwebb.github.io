@@ -21,11 +21,11 @@ The Reformation did more than start denominations emphasizing personal faith and
  ["If the Reformations Over, Can We Dance,"](http://www.boundless.org/2000/regulars/office_hours/a0000231.html) by J. Budziszewski, [Boundless Webzine](http://www.boundless.org/)
  [Joint Declaration On The Doctrine Of Justification -- The Lutheran World Federation And The Catholic Church](http://www.elca.org/ea/jddj/jddj.html)
 
-[A list of the benefits the Christian receives from suffering. ](benefits_suffering.html)
+[A list of the benefits the Christian receives from suffering. ](benefits_suffering.md)
 
-<div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script>  </div>- [Back to home page.](index.html)
-- [Back to "Answers to Some Philosophical Questions".](philosop.html)
-- [How to receive a new life in Christ.](gospel.html)
+<div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script>  </div>- [Back to home page.](index.md)
+- [Back to "Answers to Some Philosophical Questions".](philosop.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

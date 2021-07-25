@@ -7,9 +7,9 @@ The idea that truth is relative is popular today because people believe that thi
 
  Thus, absolute truth has more ability to tolerate different people than relative truth.</div>How does the person who believes truth is absolute answer the question, "If a tree falls in the forest and no one hears it, did it make a sound?" The scientist will say that the physical phenomena that we hear as sound will still exist even if no one hears it. The Christian can say that God hears the sound that every tree makes when it falls in the forest, based on Matthew 6:26, 28-30; 10:29; Luke 12:6.
 
-  </div>- [Back to home page.](index.html)
-- [Back to "Answers to Some Philosophical Questions".](philosop.html)
-- [How to receive a new life in Christ.](gospel.html)
+  </div>- [Back to home page.](index.md)
+- [Back to "Answers to Some Philosophical Questions".](philosop.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

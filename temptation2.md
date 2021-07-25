@@ -5,10 +5,10 @@ John also mentioned three temptations in 1 John 2:15: "For all that is in the wo
 
 Can we see the same three parts in Satan's temptation of Eve in Genesis 3:1-6? In Genesis 3:6 *good for food* relates to hunger and the emotional part of the inner person. *The eye* and *wisdom* both relate to the intellect. Satan's statement to Eve in Genesis 3:1, "Did God really say, 'You must not eat from any tree in the garden'?," relates to the will (volition) or decision making part of the inner person. It is challenging Eve with the pride of her ability to choose.
 
- [Back to "Matthew 4:1-11: The Source of Temptations."](temptation.html)<div class="copy">©2000 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div>  </div>- [Newer version](temptation3.html)
-- [Back to home page.](index.html)
-- [Back to "Scriptural Impacts".](impacts.html)
-- [How to receive a new life in Christ.](gospel.html)
+ [Back to "Matthew 4:1-11: The Source of Temptations."](temptation.md)<div class="copy">©2000 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote.</div>  </div>- [Newer version](temptation3.md)
+- [Back to home page.](index.md)
+- [Back to "Scriptural Impacts".](impacts.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

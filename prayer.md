@@ -30,9 +30,9 @@ and to be considerate of other people.
 
 I ask this in Jesus name. Amen.
 
-  </div>- [Back to home page.](index.html)
-- [Back to Confessions of Faith](confess.html)
-- [How to receive a new life in Christ.](gospel.html)
+  </div>- [Back to home page.](index.md)
+- [Back to Confessions of Faith](confess.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

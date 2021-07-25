@@ -3,7 +3,7 @@
 
 <div class="p">You will always have the poor among you, but you will not always have me. (John 12:8, NIV)
 
- Context: John 12:1-11</div>Have you wondered why God allows hunger? Maybe you've contemplated how humanity should use the world's resources to eliminate world hunger. [Satan tempted Jesus to use His power to eliminate hunger.](temptation.html) Although Jesus resisted the temptation to turn the stones into bread, later after He feed the 5,000, the people wanted Jesus to use His power to keep them fed (John 6:25-31).
+ Context: John 12:1-11</div>Have you wondered why God allows hunger? Maybe you've contemplated how humanity should use the world's resources to eliminate world hunger. [Satan tempted Jesus to use His power to eliminate hunger.](temptation.md) Although Jesus resisted the temptation to turn the stones into bread, later after He feed the 5,000, the people wanted Jesus to use His power to keep them fed (John 6:25-31).
 
 It's easy to concentrate only on physical needs. Advancing science and technology increases our ability to meet people's physical needs. But, science and technology don't tell us how or when to use it's capabilities. With increased ability to do good comes the increased ability to do evil. Scientific advances can even cloud our ability to discern good from evil. Genetic engineering and cloning are two examples. Past progress in agriculture, transportation, energy, and housing has impacted the environmental. With efforts exclusively on technology to meet humanity's physical needs, we miss out on the true purpose of life.
 
@@ -13,9 +13,9 @@ Obsession with the physical world's concerns leads us to value the wrong things 
 
 <div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you
  1) do not alter the wording and
- 2) reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](index.html)
-- [Back to "Scriptural Impacts".](impacts.html)
-- [How to receive a new life in Christ.](gospel.html)
+ 2) reference this Internet page as the source of the quote.</div>  </div>- [Back to home page.](index.md)
+- [Back to "Scriptural Impacts".](impacts.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

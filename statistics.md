@@ -7,9 +7,9 @@ The simple fact is that nature is certain from the standpoint of fitting definit
 
 Special thanks to Dr. J. Budziszewski, Ph.D., for his discussing this subject with me by email. He teaches in the departments of Government and Philosophy at the [University of Texas in Austin](http://www.utexas.edu/). He is also the author of the monthly column, "Office Hours" in [Boundless Webzine](http://www.boundless.org/), published by [Focus on the Family](http://www.focusonthefamily.com/).
 
-  </div>- [Back to home page.](index.html)
-- [Back to "Answers to Some Philosophical Questions".](philosop.html)
-- [How to receive a new life in Christ.](gospel.html)
+  </div>- [Back to home page.](index.md)
+- [Back to "Answers to Some Philosophical Questions".](philosop.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

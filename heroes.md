@@ -16,9 +16,9 @@ Greater love has no one than this, that he lay down his life for his friends. (J
 
  The real heroes are those who set aside their own interests to rescue other people. The ultimate hero is one who gives his/her life to save another's life. </div><div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you
  1) do not alter the wording and
- 2) reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](index.html)
-- [Back to "Where I stand".](stance.html)
-- [How to receive a new life in Christ.](gospel.html)
+ 2) reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](index.md)
+- [Back to "Where I stand".](stance.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

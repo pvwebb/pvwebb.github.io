@@ -38,6 +38,6 @@ My transportation to work is:
 Not perfect, but dependable.
 I wrote most of these pages using a notebook computer while riding the bus.
 
-[Back to home page.](index.html)
+[Back to home page.](index.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)

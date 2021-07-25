@@ -20,14 +20,14 @@ a.lbxSmallSearchTooltip:hover span {position: absolute;margin:15px 0px 0px
 </style></head><body bgcolor="#333399" link="#ffffff" text="#c0c0c0" vlink="#ffff00">Perry Webb's personal Web site
 ==============================
 
-<div class="gradientbuttons">- <div class="button">[![home](images/home.gif) &amp;nbsp Home](index.html)</div>
+<div class="gradientbuttons">- <div class="button">[![home](images/home.gif) &amp;nbsp Home](index.md)</div>
 - <div class="button">[![Confessions of Faith](images/Bible.gif)
-   Confessions of Faith](confess.html)</div>
+   Confessions of Faith](confess.md)</div>
 - <div class="button">[![Where I stand](images/luther.jpg)
-   Where I stand](stance.html)</div>
+   Where I stand](stance.md)</div>
 - <div class="button">[![Answers to Some Philosophical Questions](images/thinker2.gif)
-   Philosophical Questions](philosop.html)</div>
-- <div class="button">[![links](images/links.gif) &amp;nbsp Links](links.html)</div>
+   Philosophical Questions](philosop.md)</div>
+- <div class="button">[![links](images/links.gif) &amp;nbsp Links](links.md)</div>
 - <div class="button">[![Logos Research Systems](images/lrs1.gif)![Logos Library Systems](images/lls.gif)
   Favorite Bible Software](http://www.logos.com/)</div>
 

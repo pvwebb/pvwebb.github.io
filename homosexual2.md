@@ -121,18 +121,18 @@ The most important item at stake in same-sex unions is should government allow p
 
  Fred Phelps' response to homosexuality does more to advance homosexual political causes than homosexuals do themselves. Mr. Phelps' behavior deviates tremendously from acceptable Christian as well as Baptist behavior. His abnormal behavior is [not limited to his actions toward homosexuals](http://web.archive.org/web/20010217045056/http://gaylesissues.about.com/newsissues/gaylesissues/library/content/bl_phelpsmain.htm). It's shameful some people saw Mr. Phelps's behavior on national TV and thought it was normal for Christians. Keep in mind that Dr. Martin Luther King, Jr. was also a Baptist minister. I'm also a Baptist.</div>Homosexuals can find the real solution to guilt in Christ. Christ loves sinners so much that He died for them, to take away their sins and give them a new life. The homosexual or the person dying of AIDS needs to know that God loves them and wants to save them.
 
-[Previous edition of this page](homosexual.html) (approaches this subject from a Biblical perspective.)
+[Previous edition of this page](homosexual.md) (approaches this subject from a Biblical perspective.)
 
- [A Letter to President George W. Bush](letter1.html)
+ [A Letter to President George W. Bush](letter1.md)
 
  A Focus on the Family link that describes the impact legislation favoring homosexuality has had on other countries:
  [A Letter From Dr. Dobson -- The Christian Response to the Homosexual Agenda](http://web.archive.org/web/20000622094557/http://www.family.org/docstudy/newsletters/a0001935.html)
 
 <div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script><div class="copy">©2000 Perry Vernon Webb. You may quote this page in part or the whole as long as you
  1) do not alter the wording and
- 2) reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](index.html)
-- [Back to "Where I stand".](stance.html)
-- [How to receive a new life in Christ.](gospel.html)
+ 2) reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](index.md)
+- [Back to "Where I stand".](stance.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

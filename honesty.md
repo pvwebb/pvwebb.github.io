@@ -5,9 +5,9 @@
 
 </div>There are many different ways we can be tempted to make it easier to convince people. People often believe that, as long as they are achieving good, the means don't matter. However, for the Christian the means are the end. Through the circumstances in life and what we do in this life, God conforms us to the image of Christ (Romans 8:28-29). Being honest and open expresses God's character. God seeks to shape our inner character to Christ's, not our outward appearance. In our outward appearance we are becoming old and are approaching death, but for the Christian our inner character is what lasts in Heaven (1 John 2:17).
 
-  </div>- [Back to home page.](index.html)
-- [Back to "Scriptural Impacts".](impacts.html)
-- [How to receive a new life in Christ.](gospel.html)
+  </div>- [Back to home page.](index.md)
+- [Back to "Scriptural Impacts".](impacts.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

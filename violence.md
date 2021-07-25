@@ -11,11 +11,11 @@ Some people blame school violence on such things as corporal punishment (spankin
 
  [![](images/moviecamera.gif)](http://web.archive.org/web/20010417131509/http://www.family.org/cforum/newsrlse/a0005833.html)
 
-The trend toward selfishness and [lack of consideration for other people](http://www.arkansasonline.com/news/1999/aug/05/school-shooter-sorry-laments-wont-go-prom-pen-pal-/?print) also matches the increase in school violence. Concerning one of the two boys involved in the [Westside Middle School](http://www.arkansasonline.com/news/1998/mar/25/two-camouflage-clad-boys-arrested-schoolyard-shoot/) shooting, [his expectations of getting his own way](http://www.arkansasonline.com/news/1999/jun/06/killers-essay-haunts-westside-teacher/) contributed to his violent reaction. [Preoccupation with self](confidence.html), whether in a positive or negative manner, distracts from unselfish consideration for other people.
+The trend toward selfishness and [lack of consideration for other people](http://www.arkansasonline.com/news/1999/aug/05/school-shooter-sorry-laments-wont-go-prom-pen-pal-/?print) also matches the increase in school violence. Concerning one of the two boys involved in the [Westside Middle School](http://www.arkansasonline.com/news/1998/mar/25/two-camouflage-clad-boys-arrested-schoolyard-shoot/) shooting, [his expectations of getting his own way](http://www.arkansasonline.com/news/1999/jun/06/killers-essay-haunts-westside-teacher/) contributed to his violent reaction. [Preoccupation with self](confidence.md), whether in a positive or negative manner, distracts from unselfish consideration for other people.
 
 The devaluation in the value of human life also corresponds to the increase in school violence. Usually, people must overcome a barrier of respect for human beings to kill other people. People initially suspected revenge from shunning and ridicule to motivate the shooting at Columbine High School in Littleton, Colorado. However, the two boys' [home video](http://web.archive.org/web/20000301054129/http://www.bouldernews.com/shooting/14ccolu.html) showed [the motive to be merely the pleasure derived from committing the violence](http://www.boundless.org/2005/articles/a0000215.cfm). They had almost no barrier to overcome. They placed no value on human life, even their own.
 
-<div class="p">[Teenage suicide has increased](http://web.archive.org/web/20030928092939/http://hlthed.sask.com/cni/units/10.4.2/tbsui103.html). Legal battles continue over doctor assisted suicide. [Abortion](abortion2.html) was legalized. A bioethics professor at Princeton, Dr. [Peter Singer](http://web.archive.org/web/20010206182938/http://icarus.uic.edu/~strian1/), not only advocates [killing the old and terminally ill, but also killing handicapped babies (already born)](http://www.ragged-edge-mag.com/0799/b799ps.htm) and harvesting their parts.
+<div class="p">[Teenage suicide has increased](http://web.archive.org/web/20030928092939/http://hlthed.sask.com/cni/units/10.4.2/tbsui103.html). Legal battles continue over doctor assisted suicide. [Abortion](abortion2.md) was legalized. A bioethics professor at Princeton, Dr. [Peter Singer](http://web.archive.org/web/20010206182938/http://icarus.uic.edu/~strian1/), not only advocates [killing the old and terminally ill, but also killing handicapped babies (already born)](http://www.ragged-edge-mag.com/0799/b799ps.htm) and harvesting their parts.
 
 <div class="img_pad">[![handicapped protesting Singer](images/protestsinger.jpg)
 handicapped protesting Singer](http://web.archive.org/web/20010408191719/http://www.academia.org/singerquotes.html)</div><div class="img_pad">[![Boundless Webzine article by Anne Morse](images/princetonprofessorimage.jpg)
@@ -30,9 +30,9 @@ While many factors might reduce the risk of violence in schools, the real soluti
 
 <div class="copy">©2001 Perry Vernon Webb. You may quote this page in part or the whole as long as you
  1) do not alter the wording and
- 2) reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](index.html)
-- [Back to "Where I stand".](stance.html)
-- [How to receive a new life in Christ.](gospel.html)
+ 2) reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](index.md)
+- [Back to "Where I stand".](stance.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

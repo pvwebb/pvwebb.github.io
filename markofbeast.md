@@ -9,11 +9,11 @@ Many rulers such as the Pharaohs of Egypt and the Caesars considered themselves 
 
 The hand represents our actions and work. The forehead represents our mind. What is notably left out with respect to the mark of the beast is the reference to "the door-frames of your houses and on your gates" or any other reference to the family or children. The Antichrist will place little value on the family, what the door-frames represent.
 
-The Antichrist will follow [the temptations Satan placed before Christ](temptation.html). The Antichrist will be preoccupied with deceiving the people with miraculous signs (Revelation 13:13-15). He will emphasize taking care of peoples' physical needs. He will use governmental authority to force what he considers to be right upon the people. Controlling buying and selling is one example. Even today in many countries considered primarily Christian, Christians struggle with governments attempting to legislate immorality. This is the tendency of an unregenerate world, but why are so many Christians caught up in this same tendency?
+The Antichrist will follow [the temptations Satan placed before Christ](temptation.md). The Antichrist will be preoccupied with deceiving the people with miraculous signs (Revelation 13:13-15). He will emphasize taking care of peoples' physical needs. He will use governmental authority to force what he considers to be right upon the people. Controlling buying and selling is one example. Even today in many countries considered primarily Christian, Christians struggle with governments attempting to legislate immorality. This is the tendency of an unregenerate world, but why are so many Christians caught up in this same tendency?
 
-  </div>- [Back to home page.](index.html)
-- [Back to "Scriptural Impacts".](impacts.html)
-- [How to receive a new life in Christ.](gospel.html)
+  </div>- [Back to home page.](index.md)
+- [Back to "Scriptural Impacts".](impacts.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

@@ -39,10 +39,10 @@ We looked at each other and smiled for the first time in a week. Mom reached int
 
 Suddenly it struck us! We had given $87 of that "little over $100." We were the rich family in the church! Hadn't the missionary said so? From that day on I've never been poor again. I've always remembered how rich I am because I have Jesus.
 
- </div>  </div>- [Back to home page.](index.html)
-- [Back to "A list of the benefits the Christian receives from suffering.".](benefits_suffering.html)
-- [Back to "Answers to Some Philosophical Questions".](philosop.html)
-- [How to receive a new life in Christ.](gospel.html)
+ </div>  </div>- [Back to home page.](index.md)
+- [Back to "A list of the benefits the Christian receives from suffering.".](benefits_suffering.md)
+- [Back to "Answers to Some Philosophical Questions".](philosop.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

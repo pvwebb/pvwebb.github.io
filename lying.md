@@ -27,9 +27,9 @@ Why did I do such a thing? The only way I can explain it is the same explanation
 
 God has an interesting way of teaching us in the story of King Saul and King David. In physical appearance, Saul was the largest and strongest person in all Israel. On the other hand, David was an ordinary looking shepherd boy, but David had a heart that desired God's will (1 Samuel 13:14; Acts 13:22). Ultimately, we need to live life recognizing that God sees all things, even our thoughts and motives, and that we are responsible to Him above anyone else.
 
-<div class="copy">©1999 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote. </div>  </div>- [Back to home page.](index.html)
-- [Back to "Scriptural Impacts".](impacts.html)
-- [How to receive a new life in Christ.](gospel.html)
+<div class="copy">©1999 Perry Vernon Webb. You may quote this page in part or the whole as long as you do not alter the wording and reference this Internet page as the source of the quote. </div>  </div>- [Back to home page.](index.md)
+- [Back to "Scriptural Impacts".](impacts.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

@@ -25,13 +25,13 @@ Apparently, internal areas of the forebrain surrounded by the cerebral cortex, s
 
 Unlike computer memory, a person's memory isn&#146;t in a single location. Some describe memory in the brain as holographic. It involves all the areas of the brain involved in that memory, the senses, movement control, decisions, and emotions. Thus, while volition, cognition, and emotion are different functions, they are interwoven and interdependent.
 
-Older article this one replaced: "[What is the human mind?"](mind.html)
+Older article this one replaced: "[What is the human mind?"](mind.md)
 
 <div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script><div class="copy">©2002 Perry Vernon Webb. You may quote this page in part or the whole as long as you
  1) do not alter the wording and
- 2) reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](index.html)
-- [Back to "Answers to Some Philosophical Questions".](philosop.html)
-- [How to receive a new life in Christ.](gospel.html)
+ 2) reference this Internet page as the source of the quote.</div> </div>- [Back to home page.](index.md)
+- [Back to "Answers to Some Philosophical Questions".](philosop.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

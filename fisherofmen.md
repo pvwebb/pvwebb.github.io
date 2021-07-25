@@ -19,9 +19,9 @@ After Jesus' ministry was over on earth, Peter and the other fishermen went back
 
 At seminary I asked the question to God and myself, "How does a layman live the life of a dedicated Christian?" A funny question to ask when all I had to do is look at my parents and the dedicated Christians that I knew growing up, but pride in education can sometimes get the best of you. Now I realize that a pastor has to struggle with the same pride of making a living as any layman. For a pastor it can be even more difficult. A layman can easily separate between his work and serving God, while a pastor can rationalize that what he is doing is for the Lord. Even as unrealistic as that pride was, I knew what it was like to sit in a pew and think that I could do better with that sermon. I had to learn to hear God speak through servants who are dedicated to preaching the Word of God. The pride of making a living has trapped many pastors. It is easy for a pastor to get caught up in external factors such as building bigger buildings or higher attendance. I have heard gospel presentations so watered down with worldly concepts that I wondered if they were even Christian. They would have done just fine in a public school that didn't allow people to present the gospel. God wants changed lives and hearts dedicated to Him rather than big buildings or physical attendance with minds somewhere else. The external is only as good as it reflects the internal.
 
-  </div>- [Back to home page.](index.html)
-- [Back to "Scriptural Impacts".](impacts.html)
-- [How to receive a new life in Christ.](gospel.html)
+  </div>- [Back to home page.](index.md)
+- [Back to "Scriptural Impacts".](impacts.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

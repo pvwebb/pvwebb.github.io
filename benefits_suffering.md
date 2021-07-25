@@ -30,7 +30,7 @@
 
              A good example is when Paul had to urge the wealthy metropolitan Corinthians to give to the offering for the Christians in Jerusalem during a famine while the Macedonians gave beyond Paul's expectations even though they had less (2 Corinthians 8:1-9).
 
-             [Click here for an example of someone today](Eddie_Ogan.html).
+             [Click here for an example of someone today](Eddie_Ogan.md).
       2. It also can allow us to identify with Christ <div class="footnote">(Romans 8:17; 2 Corinthians 1:1-11; Philippians 3:10-11; 1 Peter 4:12-16)</div>. <div class="p">
             1. Christ's suffering was that He suffered for other people (1 Peter 2:21-25).
 
@@ -43,9 +43,9 @@
 
   </div>
 
-</div><div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script>  </div>- [Back to home page.](index.html)
-- [Back to "Answers to Some Philosophical Questions".](philosop.html)
-- [How to receive a new life in Christ.](gospel.html)
+</div><div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script>  </div>- [Back to home page.](index.md)
+- [Back to "Answers to Some Philosophical Questions".](philosop.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

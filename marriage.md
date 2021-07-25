@@ -8,7 +8,7 @@
 
 ### Human Sexuality
 
-<div class="p">God intends for us to preserve sexual intercourse for the marriage relationship. Any occurrence outside the marriage relationship is wrong. The Bible portrays homosexuality and bestiality as perversions of human sexuality caused by human desires seeking every means to be satisfied except for acknowledging God and His instructions<div class="footnote">(Romans 1:18-32)</div>. No matter what your condition God seeks for you to come to Him. [He offers forgiveness to those who will acknowledge that they are wrong, accept His forgiveness through Christ, and seek to follow Him](gospel.html).</div>### Links to another site that further discusses these issues:
+<div class="p">God intends for us to preserve sexual intercourse for the marriage relationship. Any occurrence outside the marriage relationship is wrong. The Bible portrays homosexuality and bestiality as perversions of human sexuality caused by human desires seeking every means to be satisfied except for acknowledging God and His instructions<div class="footnote">(Romans 1:18-32)</div>. No matter what your condition God seeks for you to come to Him. [He offers forgiveness to those who will acknowledge that they are wrong, accept His forgiveness through Christ, and seek to follow Him](gospel.md).</div>### Links to another site that further discusses these issues:
 
 [Family &amp; Marriage Issues Question Index](http://christiananswers.net/parenting/#marriage)
  [Why should I save sex for marriage?](http://www.christiananswers.net/q-sum/sum-f001.html)
@@ -18,9 +18,9 @@
  [Under what conditions may Christians divorce and remarry?](http://www.christiananswers.net/q-eden/edn-f004.html)
  [What does the Bible say about same sex marriages?](http://www.christiananswers.net/q-eden/edn-f018.html)
 
-<div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script> </div>- [Back to home page.](index.html)
-- [Back to "Where I stand".](stance.html)
-- [How to receive a new life in Christ.](gospel.html)
+<div class="p" id="footnotes"></div><script src="js/footnotes.js" type="text/javascript"></script> </div>- [Back to home page.](index.md)
+- [Back to "Where I stand".](stance.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

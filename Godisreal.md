@@ -142,21 +142,21 @@ div.Section1
 
 <span style="font-size:14.0pt">Similar to the question of evil is the question about suffering:</span>
 
-<span style="font-size:14.0pt">[Why does God, who is both all-powerful and perfectly good, allow suffering?](suffering.html)</span>
+<span style="font-size:14.0pt">[Why does God, who is both all-powerful and perfectly good, allow suffering?](suffering.md)</span>
 
 *©2004 Perry Vernon Webb. You may quote this page in part or the whole as long as you
  1) do not alter the wording and
  2) reference this Internet page as the source of the quote.*
 
-*[How to receive a new life in Christ. ](gospel.html)
+*[How to receive a new life in Christ. ](gospel.md)
 
  <span style="mso-bidi-font-style:italic"></span>*
 
 <div style="border:solid black 1.0pt;padding:6.0pt 6.0pt 6.0pt 6.0pt"><span style="font-size:10.0pt">Click ![](images/LibronixLink.gif)next to Bible references to open [Logos Bible Software Series X](http://www.logos.com/products/ldls) directly to the passage. [Learn more](http://www.logos.com/support/weblinking) about linking directly to Logos and find other web sites that support integrated Bible study.</span>
 
- </div>*[<span style="font-size:18.0pt">Back to "Answers to Some Philosophical Questions".</span>](philosop.html)*
+ </div>*[<span style="font-size:18.0pt">Back to "Answers to Some Philosophical Questions".</span>](philosop.md)*
 
-*[<span style="font-size:13.5pt">Back to home page.</span>](index.html)*
+*[<span style="font-size:13.5pt">Back to home page.</span>](index.md)*
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

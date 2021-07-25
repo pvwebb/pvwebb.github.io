@@ -7,9 +7,9 @@
 
 What does it mean to share in Christ's suffering? The word Paul used that is translated *suffering* is *pathema*. It also means *passion*. Passion fits well with the meaning here, because Christ willingly suffered for us. The last week of Jesus' ministry is often called Passion Week. The Gospels contain little more than the three years of Jesus' ministry. However, Passion Week takes up one-third of the Gospels. In the Gospel of John, Passion Week occupies almost half the book. Identifying with Christ's death is a part of identifying with His resurrection.
 
- </div>- [Back to home page.](index.html)
-- [Back to "Scriptural Impacts".](impacts.html)
-- [How to receive a new life in Christ.](gospel.html)
+ </div>- [Back to home page.](index.md)
+- [Back to "Scriptural Impacts".](impacts.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

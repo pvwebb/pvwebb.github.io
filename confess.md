@@ -8,18 +8,18 @@
 
 [Baptist Faith And Message (SBC 2000)](http://www.namb.net/resources/BaptistFaithAndMessage.htm)
 
-[The Mysteries of Christianity](mysteries.html) (updated 3/4/2004)
+[The Mysteries of Christianity](mysteries.md) (updated 3/4/2004)
 
-[Personal Testimonies](testimon.html)
+[Personal Testimonies](testimon.md)
 
-[Scriptural Impacts](impacts.html)
+[Scriptural Impacts](impacts.md)
 
-[The Original Languages of the Bible](languages.html)
+[The Original Languages of the Bible](languages.md)
 
-[My Prayer](prayer.html)
+[My Prayer](prayer.md)
 
-- [Back to home page.](index.html)
-- [How to receive a new life in Christ.](gospel.html)
+- [Back to home page.](index.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

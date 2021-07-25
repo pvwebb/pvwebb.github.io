@@ -21,11 +21,11 @@ The more removed areas of the brain are from the cerebral cortex the less they r
 
 Unlike computer memory, our single moments of memory are not located in a single place. Some describe memory as holographic because all the areas of the brain related to that memory (the senses, emotions, decisions, thoughts, etc.) are involved in the memory. Brain damage in a particular area does not erase memories, but only a particular function related to those memories associated with that area of the brain. We tend to have better recall of emotionally positive experiences, while we often suppress emotionally negative experiences until we are better able to cope with them. We can talk about separate areas of the mind such as the intellect, the will (volition), and the seat of emotions, but we must recognize that they all work together rather than independently.
 
-Newer article on this subject "[How does the brain produce volition (will), cognition (intellect), and emotions (feelings)?](mindinbrain.html)"
+Newer article on this subject "[How does the brain produce volition (will), cognition (intellect), and emotions (feelings)?](mindinbrain.md)"
 
-  </div>- [Back to home page.](index.html)
-- [Back to "Answers to Some Philosophical Questions".](philosop.html)
-- [How to receive a new life in Christ.](gospel.html)
+  </div>- [Back to home page.](index.md)
+- [Back to "Answers to Some Philosophical Questions".](philosop.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

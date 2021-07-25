@@ -11,9 +11,9 @@ What determines our true master whom we love rather than despise is the location
 
 *The Parable of the Talents* (Matthew 25:14-30) applies to how we invest our lives. As with the three servants, God has given all of us a life and resources to live that life. This life and the resources are not our own. They belong to God. Like the servants, we will all give account of how we lived our lives and used the resources God gives us. The unfaithful servant with the one talent (an amount of money) is like people that take care of their lives, provide for themselves, and end well by the world's standards. The two faithful servants are like people who risk their lives from the earthly standpoint (Matthew 6:33) and invest in God's kingdom as cleverly as the wise businessmen invest their money.
 
-  </div>- [Back to home page.](index.html)
-- [Back to "Scriptural Impacts".](impacts.html)
-- [How to receive a new life in Christ.](gospel.html)
+  </div>- [Back to home page.](index.md)
+- [Back to "Scriptural Impacts".](impacts.md)
+- [How to receive a new life in Christ.](gospel.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

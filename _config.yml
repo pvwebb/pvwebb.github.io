@@ -9,6 +9,8 @@ plugins:
 relative_links:
   enabled:     true
   collections: false
+include:
+  - *.md
 header_pages:
   - index.md
   - confess.md

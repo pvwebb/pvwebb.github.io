@@ -1,5 +1,7 @@
- <head> <meta content="IE=9" http-equiv="X-UA-Compatible"></meta> <title>(PVW) Answers to some philosophical questions </title> <link href="css/page_style.css" rel="stylesheet" type="text/css"></link> <script src="js/include.js" type="text/javascript"></script> <meta content="20020114;17355210" name="CREATED"></meta> <meta content="Perry Webb" name="CHANGEDBY"></meta> <meta content="20020129;19480137" name="CHANGED"></meta>  </head><body lang="EN-US"><div class="page_style"> <a name="top"></a>Answers to Some Philosophical Questions:
+ title: (PVW) Answers to some philosophical questions
 ----------------------------------------
+
+# Answers to Some Philosophical Questions:
 
 [What is the purpose of life and death?](death.md)
 
@@ -37,8 +39,7 @@
 
 Other subjects to be added later.
 
- </div>
- [Back to home page.](index.md)
+[Back to home page.](index.md)
 
 Email: [pvwebb1@hotmail.com](mailto:pvwebb1@hotmail.com)
 

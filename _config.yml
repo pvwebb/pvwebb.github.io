@@ -6,6 +6,9 @@ github:
   is_project_page: false
 plugins:
   - jekyll-relative-links
+relative_links:
+  enabled:     true
+  collections: false
 header_pages:
   - index.md
   - confess.md

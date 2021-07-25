@@ -1,13 +1,15 @@
 title: Perry V. Webb
+author:
+  name: Perry V. Webb
+  email: "pvwebb1@hotmail.com"
 github:
   is_project_page: false
 plugins:
   - jekyll-relative-links
-relative_links:
-  enabled: true
-include:
+header_pages:
   - index.md
   - confess.md
   - stance.md
   - philosop.md
   - links.md
+theme: minima

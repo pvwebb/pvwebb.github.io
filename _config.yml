@@ -1,0 +1,13 @@
+title: Perry V. Webb
+github:
+  is_project_page: false
+plugins:
+  - jekyll-relative-links
+relative_links:
+  enabled: true
+include:
+  - index.md
+  - confess.md
+  - stance.md
+  - philosop.md
+  - links.md
